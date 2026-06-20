@@ -1,0 +1,171 @@
+# Get a Job Lazy Man
+
+We are very familiar with Luke 6:38 being quoted to us most of our born-again lives before an offering:
+
+> Give, and it shall be given unto you; good measure, pressed down, and shaken together, and running over, shall men give into your bosom.
+>
+> For with the same measure that ye mete withal it shall be measured to you again.
+
+We use that verse before offerings because it gives us all kinds of guarantees.
+
+When Jesus taught me on meditation, I came to understand that faith comes by hearing, and hearing by the Word of God. If what you are believing is the Word but is not actually the Word, if the light in you is darkness, it does not matter how hard you believe it. It will not produce fruit. Paul said you will be like one who beats the air.
+
+Many people who love God have energy and spend it for what they believe is the kingdom. But if they are spending it for what is not the kingdom, then Paul said they are like one who beats the air. He also said, "Lest I preach to others and myself become a castaway," and for that sake he buffeted his body.
+
+Many things we teach and preach as the Word are not, in all cases, the Word.
+
+One of the primary things the Lord told me in teaching me how to meditate was, "Son, never take a verse out of context." Jesus always taught in complete teachings. He never went to the next subject until He finished the one He was on. I found out that the first thing the Holy Ghost would alert me to was the change of subjects.
+
+Within a teaching subject, every verse is a thought within itself, simply a stroke of the brush, but invariably building toward the meaning of the entire teaching or revelation.
+
+When He taught me this, it changed my faith. If what I am hearing is not the Word of God, then it cannot produce faith. Someone says, "If the Word says it, I believe it, and that settles it." That is error. If the Word says it, it is settled whether you believe it or not. This is not a democracy. God did not ask for your vote.
+
+The Word of God is there for you to find, not to change. When you find it, it will produce the God kind of faith. Nothing else in this universe carries the standard of truth as the immovable object that every temporary thing must give way to.
+
+I cannot tell you how many hours I spent praying in the Holy Ghost, walking the floor, and pouring myself out in Luke 6. Sometimes I would read a chapter like this fifty times before trying to extract anything from it.
+
+The reason was that I wanted the Holy Spirit to allow an outline, a form of image, in my spirit, an outline He could fit each individual verse into. Many times I would walk the floor and pray mysteries in the Holy Ghost and cross over a chapter like this fifty times without trying to get anything particular out of it, without majoring on any one verse like Luke 6:38.
+
+When I refused to take it out of context, it began to say things that set me free forever.
+
+A prayer center is a very interesting place. People feed into here with all kinds of problems. As one of our first standards, we set them into prayer, particularly praying in the Holy Ghost, though of course that is not the only kind of prayer.
+
+I esteem the worship of God, especially private worship. I love public worship and cannot get enough of it. But private worship is very important to me now. I walk the floor and love Him, telling Him a couple thousand times how head over heels in love with Him I am, not because I am asking for anything, not because devils are subject to me in His name, not because disease is subject to me, but just because my name is written in heaven and I love Him.
+
+Then there is confession of His Word, which I have learned to love as part of meditation. When He says, "Let not the Word depart out of your mouth, but meditate therein day and night," I found that confession is a viable part of meditation.
+
+Many times, when my soul had trouble believing something and my hope was out of order, based on the world system instead of His Word, I would walk the floor and speak out loud the area of the Word I needed to be transformed in. "Surely He has borne my sickness and carried my pains; therefore, I am healed."
+
+A person weak in faith concerning healing, or weak in faith concerning the lusts of the flesh, would be shocked how much it helps to walk the floor, worship God, and confess the strength of His Word in those areas. Pretty soon the transformation of the soul begins. Your soul opens up, and your hope opens up to the kind of faith that comes from being transformed to His Word.
+
+Confession of His Word plays a viable part in meditation because it causes the Word to come alive inside you, transforming you to it.
+
+Perhaps the most powerful kind of prayer is praying in tongues, because it takes the areas of the Word we have trouble understanding, the mysteries, and prays them.
+
+A mystery is something hard to understand because its origin is not of this earth. Philosophers throughout the ages searched for the answers to life. Plato, Socrates, Descartes, and others plunged their minds into infinity, looking for the origin of life. They finally came up with the philosophy of an unmoved mover, meaning they knew somebody was out there. The universe is not chaotic. It is in order, and something in such order must have a mind behind it.
+
+But they believed He created man and set him on his own journey. Men have always searched for the answers to life but had no source to go to.
+
+When Paul talks about the mysteries of the gospel, he is saying that the mystery of life has been solved, but the information did not come from this world or the princes of this world.
+
+No man knows the things of a man except the spirit of man in him. No man knows the things of God except the Spirit of God in God. But that Spirit has been given to you to show you the things freely given to you by God. The mystery of salvation has been solved.
+
+Paul said:
+
+> We speak the wisdom of God in a mystery.
+
+The origin of this mystery is not this world. It has been solved by God, and by the Spirit of God it has been given to us. You cannot spend five hours praying in tongues without communicating these mysteries before God, whose origin is not of this earth.
+
+The Holy Ghost took this mystery of redemption, solved it, and imparted it to Paul. Paul said its origin was not of this world. He said, "As a wise master builder, I have laid the foundation, and there is no other foundation than Jesus Christ crucified."
+
+Jesus, the mighty Logos, creator of all things, was crucified for you. There is no other foundation. He is your salvation and your Creator. So Paul said to take heed how you build on that foundation.
+
+Paul told the Corinthians that he would like to speak to them as spiritual, but he could not. He had to speak to them as carnal because they were still saying, "I am of Paul," and, "I am of Apollos."
+
+He said, "Who is Apollos but a man who watered? Who am I but the one who sowed and got you born again? We are only men. God gives the increase." Paul showed them his source: the wisdom not of this world, the mystery of redemption, received from the Holy Ghost.
+
+So why follow Paul instead of going to the mouth of the river yourself? In 1 Corinthians 14, Paul says that the man who prays in an unknown tongue speaks not unto men but unto God, and in the Spirit he speaks mysteries. Those mysteries are everything Christ is in you, the hope of glory. They wake up the Word of God and begin your transformation to it, so you do not build incorrectly on the foundation of Jesus Christ.
+
+People come into the prayer center with all kinds of problems. Some have hopped from church to church, and when the church tells them, "You should get a job and work," they say, "I do not like this church," and go somewhere else.
+
+Others get a great revelation that they are just going to come to church and pray all the time, and God is going to supply their needs. Wrong.
+
+The prayer is going to transform you to a revelation that says, "Get a job." If you do not, from then on you are going to have trouble with prayer.
+
+"God is just going to supply my need."
+
+Do you want to bet?
+
+I got the biggest kick out of Bob Yandian. When he taught at Rhema, he had to counsel some students who ran out of money. One told him, "I do not understand it. I came here to live by faith. I am going to believe God so I can give all my time to studying the Word and passing Rhema. I am just going to study and pray all the time, and God is going to meet my needs by faith. After all, I am training to be a minister. But I believe God and believe God to meet my needs, and all I get is job offers."
+
+Let me tell you something about the Holy Spirit. You begin to edify yourself, and He will start transforming you to what the Word says. He will pull out the things that keep you from being successful and make you face them. When He pulls them out, if you say, "I am not going to do it," then one of two things will happen: eventually you will fall out of prayer, or you will do it.
+
+It will be too complicated to carry on both. Until you make up your mind to be transformed to what He is transforming you to through prayer, you are going to have chaotic prayer.
+
+A stronghold has a way of latching onto your emotions. If money is your god, if not working is your god, if laziness and flesh are your gods, whatever is keeping you from producing in the kingdom, you are not going to pray long before He brings you face to face with it and attempts to transform you. At that point you will either fall out of prayer, get past that impasse, or go to another church where they will tell you that you are okay.
+
+Go to 2 Thessalonians 3:6:
+
+> Now we command you, brethren, in the name of our Lord Jesus Christ, that ye withdraw yourselves from every brother that walketh disorderly, and not after the tradition which he received of us.
+
+What is disorderly? We are going to find out.
+
+> For yourselves know how ye ought to follow us: for we behaved not ourselves disorderly among you;
+>
+> Neither did we eat any man's bread for nought; but wrought with labour and travail night and day, that we might not be chargeable to any of you.
+
+Paul said they did not eat any man's bread for nothing. That is the definition of disorderly and irresponsible. If I am willing to take your bread and money and offer nothing back in return, I am acting irresponsibly.
+
+He called these people busybodies. They acted irresponsibly because they did not work or make their own way.
+
+Paul continued:
+
+> Not because we have not power, but to make ourselves an ensample unto you to follow us.
+>
+> For even when we were with you, this we commanded you, that if any would not work, neither should he eat.
+
+I cannot think of a higher motivator than that.
+
+I used to be confused about a handout and a hand up. When you back up a few verses from Luke 6:38, Jesus begins with "Be merciful, for God is merciful." Then He says, "Judge not, condemn not, forgive, and give, and it shall be given unto you."
+
+When He said to be merciful because your Father is merciful, I did not understand mercy. Many times when I preached, I interchanged mercy and grace because I did not know the difference. I do now.
+
+When the earth was full of spiritually dead men who had no way to approach God, He had mercy by crossing the void caused by sin. Man could not penetrate it to God. He had nothing to bargain with, no rights to approach God.
+
+So God crossed that void. He sent Jesus across it by His mercy, with His blood, and reconciled man back to God. The fact that He did that for the world means He had mercy on it. Mercy provided access to God whether a man takes it or not.
+
+Grace came when God not only canceled the thief's sin but adopted him into the family, made him equal, put royal robes around him, placed the diadem of royalty in his hand, and gave him rule in the household. That is the grace of God.
+
+Mercy is directed toward sinners. Jesus says to be merciful as the Father is merciful: judge not, condemn not, forgive, and give.
+
+Who am I to show mercy to? If a man despitefully uses you, pray for him. If he hates you, do good to him. If he slaps you on the cheek, turn the other. If he comes by force and law and takes away your goods, give him more than he asked for. You will be children of the Highest, because He is merciful to the unthankful and the unholy.
+
+When an unbeliever slaps me on the cheek and I turn the other, I am having mercy on him. When he sues me for my car and I fill it with gas, I am having mercy on him. Why? He is a sinner, and because of the love of God I have elected to carry the mercy of God across that void of persecution and present the blood of Jesus to him.
+
+That is different from giving believers a handout while they refuse accountability to the Word.
+
+If you become a believer, hear the Word preached, and become a busybody willing to live off other people, willing to live off your husband or wife while you refuse responsibility, then you must become accountable to the Word of God. God is going to deal with you one way: by transforming you to the Word.
+
+If you think you can walk around this building and pray all day while your wife supports you, God is not going to bless that. He said a man who will not support his family is worse than an infidel. An infidel is a skeptic. This man has received the counsel of God and rejected it. Do you think God's blessings are going to be on that? They are not.
+
+I remember the week I went full-time. I did it because of a supernatural vision. I was thirty years old, working in a mill. I was not proud of everything, but I was doing the best I could as an ultra-holiness boy steeped in legalism.
+
+One problem I never had was providing for my wife and family. When I was so sick I thought I was going to die, my wife would turn the alarm off because she knew that if I heard it, I would get up and go to work anyway. I got some of my best promotions because I never missed a day.
+
+Most of my life I worked Saturdays, not because I wanted extra luxury, but because I needed the extra money for necessities for my family. Many times I worked three days in a row pulling sixteen-hour shifts at the mill. My job was not easy. Some boards I handled weighed hundreds of pounds when wet. They would come off the chain, slam onto my knees, and I would guide them onto the pile with a big leather apron.
+
+On weekends, when a miracle ministry was in town, I would drive fifty miles to the meeting after those long shifts. There was a woman with multiple sclerosis whom I would carry in my arms up two flights of stairs because I wanted to see her healed so badly.
+
+Any praying I got done was in the wee hours of the morning or late into the night. Even then, I was overdue for ministry until God woke me up, gave me a vision, and told me I was overdue. Based on that vision I resigned my job and went full-time.
+
+With that same purpose, I met myself in motels coming in and leaving meetings. Sometimes I would come in for a day and immediately get on an airplane and go out again. After twenty years of living like that, the Lord said, "I think I am finding you faithful."
+
+If you think entering ministry means you will be less busy than providing for your household, life, and prayer, no sir. If you are filling the role of an infidel, you are not going to make it in ministry.
+
+So a handout is different from a hand up. We have given people hands up, and they did not have a welfare spirit. They had enough character to pay it back. We have also given people handouts because they would not finish transforming to what the Word says about their problem, and most of them eventually left.
+
+The counsel in the heart of a man is deep waters, but a man of understanding will draw it out. The Lord has been ministering to me lately. He said, "Son, you could take just about five percent of your time, and if I am in that creative wisdom, your personal bankroll could number into the millions. Your whole ministry could be supported by sinners."
+
+Just five percent of the counsel He is able to pull out of the wisdom operating on the inside of you would do more than you could ever conceive. But if you think walking around as a busybody will solve your problems, you are wrong. Transformation to the Word solves your problem, and that is the only role prayer will play.
+
+You can approach a nuclear reactor and not know how it works. Counsel in the heart of a man is deep waters, and a man of understanding pulls it out. He will pray and do what is necessary to understand that counsel, and then that reactor will work for him.
+
+Just five percent of God's ability in operation would do more than you could ever conceive. Sinners are working for you. Ecclesiastes says God gives to a good man wisdom, knowledge, and joy, but to the sinner He gives travail to gather and heap up, that he may give to him who is good in God's sight.
+
+They are heaping it up, but the transfer to you is made through wisdom, knowledge, and joy. Lazy man, it will never come to you.
+
+You may walk around saying, "I have a million dollars," but if you do not get up until afternoon, do you think some rich person who was up at four in the morning praying and making financial decisions is suddenly going to be moved by the Holy Ghost to write you a million-dollar check? The transfer from the sinner to you is made through wisdom, knowledge, and joy.
+
+Wisdom employs knowledge. The material for an airplane was always in the ground, but the airplane did not come into existence until wisdom employed the knowledge. Now there are men sitting on mountains of money enjoying the result.
+
+Do you think you are going to pray ten hours a day and God is going to come into your room and reward laziness? No. The joy is the sustainer in the soul realm through the many tribulations the devil will throw at you. Joy keeps wisdom and knowledge operating until your bank book is as strong as the kingdom of God you represent.
+
+You will have to support yourself until the transfer is made to the kingdom, when God so honors your gift. I can guarantee you one thing: if you have a lazy bone in you, He is not going to honor it.
+
+You may hoodwink people out of their money for a while, but you will run out of people to hoodwink, and your fountain will dry up because God is not in it.
+
+But the man who walks with God can lift his face to heaven anywhere and pray, and God will answer. Send him to the back side of the desert, and he ends up owning it. Send him to jail, and he ends up running the nation. Put him in a little house on the other side of the tracks, and he buys the train.
+
+You cannot stop him.
+
+And I will tell you again, as I have told you many times: wisdom is enhanced by praying in the Holy Ghost.

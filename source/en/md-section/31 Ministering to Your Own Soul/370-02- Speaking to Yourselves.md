@@ -1,0 +1,317 @@
+# Speaking to Yourselves
+
+## The Elders Framed Their Generations by Faith
+
+Go to Hebrews 11, and put a marker in Ephesians 5 again. Hallelujah, Jesus.
+
+Let us begin with the first verse and meet this thing head on again. Passing in review as briefly as I can, let us begin with the classical scripture:
+
+> Now faith is the substance of things hoped for, the evidence of things not seen.
+>
+> For by it the elders obtained a good report.
+>
+> Through faith we understand that the worlds were framed by the word of God, so that things which are seen were not made of things which do appear.
+
+Then he begins to talk about the good report the elders obtained by faith:
+
+> By faith Abel offered unto God a more excellent sacrifice than Cain...
+>
+> By faith Enoch was translated that he should not see death...
+
+Before his translation, Enoch had this testimony, that he pleased God.
+
+> But without faith it is impossible to please him: for he that cometh to God must believe that he is, and that he is a rewarder of them that diligently seek him.
+
+Then he went on with a testimony that is even greater than Moses' really:
+
+> By faith Noah, being warned of God of things not seen as yet, moved with fear, prepared an ark to the saving of his house; by the which he condemned the world, and became heir of the righteousness which is by faith.
+
+In talking about the good report the elders obtained by faith, he says, "Now faith is the substance of things hoped for." Since faith comes by hearing, and hearing by the Word of God, then the hope in my soul must be programmed by the Word in order for faith to put substance to it.
+
+Faith is the substance of things hoped for. It is the evidence of things not seen. By it the elders obtained a good report. Through faith we understand that the worlds were framed by the Word of God.
+
+As I mentioned in review, "worlds" there is not cosmos. It is not pertaining to the universe, galaxies, and planets. The word means generations. What he was talking about was the good report these elders received by faith. Their generations were framed by the Word of God, so that things which are seen were not made of things which do appear.
+
+Men like Moses, Enoch, and Noah moved by faith. Noah moved in fear to the saving of his household, and by that act of faith condemned a world and received righteousness which is by faith. Moses did not esteem the treasures of Egypt; he preferred persecution with the people of God. He passed through his generation and changed his world by faith.
+
+The word "worlds" there is not cosmos. It is generations. They changed their worlds. The good report they obtained by faith was how they received faith from God and changed the generation they lived in.
+
+What makes this so interesting in our covenant is that He is offering the same kind of faith to you and me.
+
+## Faith That Pleases God Has Two Requirements
+
+This is what He talked about when He said, "He that cometh to God must believe that He is, and that He is a rewarder of those who diligently seek Him."
+
+To have faith that pleases God, your faith has two requirements. When you approach Him in faith, first you must believe that He is. Second, you must believe that He is a rewarder of those who diligently seek Him.
+
+Just as He was establishing Himself with Moses concerning the covenant He made and promised to Abraham, when Moses asked, "Who shall I say sent me?" God said, "I AM. I AM."
+
+What He was saying was, "I am simply the sum total of everything that exists, present, past, and future. I am He, the same One who established this covenant with Abraham. I am He. I am the Lord God. I am He who is God."
+
+He is saying the same thing here in our covenant. He that comes to God must believe that He is. It is the same as God telling Moses, "I AM." Jesus said, "Before Abraham was, I am."
+
+If you come to God, you must believe that He is. That He is what? That He is everything He said He is in your covenant. Everything. That is first.
+
+In this covenant, in the positional truth He has provided for us, in order for you to please Him, when you come before Him, you must believe that He is. In your covenant, He has provided everything for you through Jesus Christ. To please Him, you must believe He is everything He promised you through Jesus Christ.
+
+This is your covenant. He is your righteousness. He is your healing. He is your prosperity.
+
+Sovereignty entails this: He has sovereignly provided healing for you. He has sovereignly provided salvation for you. When you come to Him believing that He is, then you are believing that He is what He said He is in His Word.
+
+When you come to Him to be saved, you must believe with your heart and confess with your mouth, and you will be born again. There is not enough power in the universe to stop what takes place when a man comes to Him in faith to be born again, believing that He is. There is not enough power anywhere to stop the rebirth from taking place, because it is a spiritual law.
+
+What He is trying to teach you about faith, the kind that comes to God believing that He is, is positional truth. He is what He said He is.
+
+If He said you are healed through Jesus Christ, then the first thing you have to do is throw out everything else that says the contrary: your body, the circumstances, what the doctor says, what your senses say, what your emotions say. If you come to God believing that He is, then you must believe that two thousand years ago, Jesus crossed through the cross and became what He is in your healing, and nothing else counts.
+
+The first step to your miracle is that you must believe He is. Second, you must believe He is a rewarder of those who diligently seek Him.
+
+## Admiring the Covenant Is Not the Same as Diligently Seeking Him
+
+There are two levels of faith we are talking about here. The first level we understand in faith camps. We know we have a covenant. That separates us from many people who do not know their covenant and say, "It is God's will to heal sometimes, and sometimes it is not. It is God's will to prosper some and not others."
+
+If you meet the condition, He wants to prosper you. If you meet the condition, He wants to heal you. That is coming to Him believing He is, believing He is the One who provided these things.
+
+Being faith people, we have prided ourselves in a good way on establishing ourselves on the foundation or the rock of doing Jesus' sayings. I am the righteousness of God in Christ. I have a covenant that has provided my healing. I have a covenant that has promised me prosperity as long as I prosper the kingdom. I have a covenant. I have a covenant. I have a covenant.
+
+We have made it to the first level. We adhere to the Word of God, and we love it. In one sense of the word, we worship it enough that no matter if our children are sick or half the congregation is sick, we still adhere to the covenant.
+
+Suppose we had thirty deaf, dumb, mute, and blind children up front who had never received healing. They have not received it in ten years. They are going into their teen years still deaf, dumb, blind, and mute. Pretty soon they will be young adults. But through all their lifetime of growing up in our church, we still adhere to the covenant.
+
+If anybody asks you about them, "Did God provide healing for them?" we say, "Yes, He did. Yes, He did."
+
+We adhere to our covenant that much. That is the first level of faith: to admire it, to admire the principles in it, to admire the fact that all things are possible to him who believes. All things. Nothing shall be impossible to you.
+
+We adhere to the fact that it is all in our covenant, but most of us are married to the world too much to take it to the second level. The second level is to realize God as the rewarder of those who diligently seek out the fact that He not only is, but that to you He is a rewarder.
+
+I do not want to leave those children that way. I do not want them to grow up in our church, if the Lord tarries twenty years. I would rather be dead. I prefer dead and mortification. I would rather stay on this planet, but I have a covenant.
+
+To take my faith to the second level, I must find out, if I cannot believe what this covenant says, how to bring my senses and emotions under subjection to the Word of God that says He is, until I go from level one to level two.
+
+## Intercession Sees the Need Through God's Eyes Without Losing Peace
+
+I enjoy the peace of God in my moments more and more. But the closer I get to God, the more I can see the need through His eyes. That is intercession.
+
+Finally, seeing it through His eyes, I groan within my righteous spirit, waiting for the adoption process of all creation to be completed: a glorified body, a new heaven, and a new earth. Meanwhile, I am right in the middle of the problem.
+
+The closer I get to God, the more I see the problem through His eyes. That causes me to groan and cry. Then the Holy Spirit comes along and adds His intercession to move mountains out of my way and cause your life and my life to go higher and higher as we see more of God's covenant performed.
+
+Two interesting things take place: the more peace of God, and the more I see the problem through His eyes. It may sound to you as if I live in some kind of torment all the time because I do not see those thirty deaf, dumb, and blind children healed. No, it is not a state of torment. It is a state of intercession. It is simply a state that will not let me live the way I am without changing it.
+
+I did not say I am in lack of peace. Paul talked about it when he talked about pressing toward the mark for the prize of the high calling. He said, "Nevertheless, whereto we have already attained, let us walk by the same rule."
+
+I cannot change the state I am in without going into God and changing the way things are. But while I am making that journey in God, I am full of peace and contentment. Yet I do feel the intercession warring inside of me against the day those children will not have to stay that way when they come into our service.
+
+Do you understand?
+
+Paul said, "I apprehend that for which also I am apprehended of Christ Jesus." That is simply to say Jesus walked up to me, laid hold of me, grabbed me, and then showed me what He grabbed me for. So I press toward the prize of the mark, and that is to find out what He apprehended me for.
+
+Yes, I have great peace. I do not want the peace that comes from the world. I do not want to feel good about myself when all those children are suffering in torment and I have one foot still married to the world. I do not want to feel good about anything that excludes what God has called me to do.
+
+But peace? My God, yes. More than I had in the days when I had an affair with the world. Not a sinning affair, just a satisfied affair. I am much more content now.
+
+To go from level one to level two, I must find out how to subject my senses and emotions under the fact that He is what He said He is, until I come to a place where He is able to reward me for what He is, with what He is, in what He is.
+
+## Impossible Circumstances Reveal Whether We Will Dare to Believe
+
+When the circumstances are staring you flat in the face, fighting every emotion and every sense, every sensory nerve ending tells you it is an impossible situation. It cannot be.
+
+Maybe your child has never talked. Maybe his body is twisted. Twenty-five years. Impossible sensual situation. Absolutely impossible. No known hope in the world. Physicians say there is no known hope. It is an absolutely impossible situation, insurmountable.
+
+There is only one hope, and you can find it in the Word. But you go looking for people who can teach you more about that hope, who can teach you about being content where you walk, about being content in the good or acceptable will, and not much can teach us about contentment in the perfect realms.
+
+In the perfect realms where God is able to operate, He does not leave children like that.
+
+This is what the ministry is about. He prepared a table for the world. He said of those who were bidden, "Go out and call the halt, the maimed, the lame, and the blind. Come and say, 'The supper has now been prepared. The dinner is prepared.'"
+
+Call the lame, the halt, the blind. Tell them to come, because the Lord their God, Jehovah, has prepared a supper for them through Jesus Christ, and He is now inviting the whole world to come: the halt, the lame, the blind, the captive, the tormented.
+
+We call them to come to a dinner all right, but it is the one we wanted to fix. It is not the one He prepared. It is the one we want to fix. When we start talking about the price for the one He wants to fix, it calls for your death. The one He fixed to minister to the world makes me uncomfortable at times.
+
+What He has asked me to do makes me uncomfortable. Sometimes when I am more in the flesh than at other times, I lie there and the devil beats me to death and says, "All you will ever do is run people off. You think you are going to find a people who will go with you? All you are ever going to do is run them off."
+
+So you get used to it. You are just like Jesus when He preached the message about eating His flesh and drinking His blood, and they all forsook Him. He looked at the twelve and said, "Are you going too?" They said, "No."
+
+I am not in His capacity, but the devil has used a lot of those things on me.
+
+God gave me some scriptures the other day, not that I knew what was in them. He just spoke them to me, chapter and verse. I went over there, and He said, "Son, when are you going to learn that you are going to have to be one of the first partakers of the fruit from the vineyard? Most people are such sensual creatures that you must present first to their outer man infallible evidence of what you are saying. Wisdom is justified in her children."
+
+"Go on, Mr. Roberson, preach about revival. You have done it for five years. You have not produced it. Come on, keep preaching. We are going to go somewhere we can have fun again, because we do not believe what you are preaching will produce it because it has not done so yet."
+
+Most people do not walk in enough faith to see something like that through. So the devil threatened me with it and threatened me with it. It does not make any difference to me.
+
+God also spoke this to me: "Son, when you enter into phase three, a revival status, and you come to a place in My glory where I can do that with those children, you could have burnt yourself out in the acceptable will from one end of the earth to the other, and I will produce more through you in phase three in two years than you could have produced the rest of your life."
+
+So go on, make up your mind. This is a real church. It really cares for your soul. You may not be too happy now, but I can promise you that in the billions of years to come, you will live in elation, in exceedingly great joy beyond normal heavenly realms, because you buried down on saddle leather with your teeth and took it and went with us.
+
+Do you hear me? Went with us.
+
+Right now, it takes more of a walk of faith than most mainline Christianity is able to bear. But if somebody does not start, how are we going to go there? If the realms we used to walk in produced revival, we would have had it. If they did not, does it not stand to reason that obviously it is going to require something we have never done before?
+
+## Speaking to Yourselves Fills the Senses with the Holy Spirit
+
+Right now we are talking about pulling my senses and emotions under subjection to the Word, bringing them from level one to level two, from believing that He is to believing that He is the rewarder of those who diligently seek Him.
+
+How do I do that? Praying in tongues will change your life over a period of years. But what we are talking about right now can attack a problem and turn it in a matter of months. It still does not bring a permanent change inside that brings your whole life and ministry a step higher in God. Praying in tongues will do that. Fasting and things like that will do that. But this fellowship we are talking about now will turn something in the immediate and work you toward the permanent.
+
+If I want to bring my immediate senses, which are looking at failure, into another realm, what do I do? Suppose I am looking at a child of twenty-five years who has been that way all his life. My senses are so overpowered that they are incapable of seeing anything else.
+
+Can I stand before a God who would answer that kind of prayer? Or should I let it go, get in my car, drive down to the restaurant, and worship God that I have it together? Should I adopt some sovereign doctrine that it was His will for him to be that way and for me to be my way because He is obviously somehow a respecter of persons? Or can I dare to believe He can change it?
+
+Can I dare to believe that He is a rewarder? Can I dare to believe those fairy-tale verses: "Nothing shall be impossible to you," and "All things are possible to him that believeth"? Do I dare believe it? Or are we going to go down through history excluding those verses like so many generations before?
+
+Go to Ephesians 5 again. I am going to pick on a verse or two very hard. We already went over it for the harvest. Now we are going to glean.
+
+I want to deal with my sense man in the immediate. I will always need to do that until I am transformed by the power of the Spirit to permanently become that. It seems like I am always walking here, reaching for something. What I am reaching for, I do not have, so I am walking by faith.
+
+I get these principles out that we are talking about now. I assist my senses into coming to another realm while I work the permanency out by constant prayer until I am walking in that realm and not having to attain to it on a periodic basis.
+
+Hypothetically speaking, say one of my children grew up in church with me and is twenty years old with severe mental and physical limitations. He grew up in faith churches with me, sat in faith churches, possibly under my own ministry.
+
+The first thing I need to do is get the Word of God out that describes victory over the problem. Of course, we all know that as any faith standard.
+
+This is what Ephesians 5:17 is talking about:
+
+> Wherefore be ye not unwise, but understanding what the will of the Lord is.
+
+Be not unwise in this situation, but understand what the will of the Lord is. To come to God and believe that He is, it does not matter what reports come from doctors, genetic scientists, DNA studies, or anyone else. It does not matter what anybody says. First, I must understand what His will is.
+
+If you are unwise in that area, the devil will take it and beat you right out of it. That is first.
+
+Then verses 18 through 20 become very interesting:
+
+> And be not drunk with wine, wherein is excess; but be filled with the Spirit;
+>
+> Speaking to yourselves in psalms and hymns and spiritual songs, singing and making melody in your heart to the Lord;
+>
+> Giving thanks always for all things unto God and the Father in the name of our Lord Jesus Christ.
+
+How do I fill Dave Roberson up with the Spirit? Speaking to yourselves in psalms and hymns and spiritual songs. How do I be filled with the Spirit? We have a problem here. Speaking to yourselves in psalms and hymns and spiritual songs, singing in worship, making melody in your own hearts to the Lord. You and Him.
+
+Now notice verse 20:
+
+> Giving thanks always for all things unto God and the Father in the name of our Lord Jesus Christ.
+
+As charismatics, we took "giving thanks always for all things" and were quick to isolate that verse. We said all things include car wrecks, diseases, and cancer. "So what are you giving thanks for?" "Oh, I am giving thanks for the cancer that came on me last year. I am giving thanks for the car wreck that left me on my back so I could look up to God."
+
+As faith people, we have left that far behind. There is no use majoring on that kind of thing. But to explain this verse: when you begin to minister to your own soul in hymns and spiritual songs, you are wise enough to get the Word of God out that describes victory over your problem.
+
+So when you start giving thanks for all things, you are giving thanks for all things included in the wisdom of His Word that describe victory over your problem. When you come to God believing that He is, you know that in the positional truth of "He is," in our covenant, He provided healing.
+
+My thanks, not being unwise concerning the will of God, is limited to that category. I am not thanking Him that my child is afflicted. "God sent my child and made him that way because He knew I needed character development." Oh sure. He threw a whole human being's reward away, made him a laughingstock to every cruel, unregenerated nature, just to teach you a lesson?
+
+When you talk about self-exaltation, you sure think you are worth something, do you not? God would not put another human being's life on that kind of altar, sickness, disease, or death, at your expense. You need that to drive you into a closet and pray. You are not going to do anything for Him anyway.
+
+No, sir. I am giving thanks always for all things included in the wisdom of His Word that describe victory over my problem.
+
+## The Spirit Intoxicates the Senses Until the Word Outweighs the Problem
+
+You may say, "You are talking about a problem nobody will deal with. The greatest Spirit-moved meetings in the world do not like to deal with those problems."
+
+When we see a child with no arms or legs, usually their spirits are so developed they have had to survive other human beings. They have had to become calloused to everybody's reaction. Then spiritual idiots get up and say things like, "There are some things I do not know about God. He let this person be this way to develop the sweetest spirit inside them." They get that real religious look on their faces.
+
+This is the problem with praying too much in the Holy Ghost. You pray yourself out on the limbs of the mysteries, into the buds and leaves on the tree of revelation, until you start understanding so much about God that you wonder what we have done to Him.
+
+So I have this hypothetical twenty-year-old child who grew up with me in the ministry. I have recently discovered this, so I am not unwise anymore. I get the positional truth out, contrary to DNA, genetic scientists, heritage, doctors, and just about every known religion in the world.
+
+Then the next verse says, after I get these verses out, "Be not drunk with wine, wherein is excess; but be filled with the Spirit."
+
+How do I be filled with the Spirit?
+
+This is what He is talking about. Your senses live here, and the Holy Spirit lives here. To be filled with Him is for Him to come from here and give your emotions and senses such a bath in the Holy Ghost that they need no outside stimulation but the Word of God to know, to know, that your child is healed. It comes from here to here.
+
+This is an incredible statement:
+
+> Be not drunk with wine, wherein is excess; but be filled with the Spirit;
+
+How? By ministering to your own soul until He can come out of the place where there is no faith and give your senses a bath, until they are more willing to bring themselves under subjection to what the Word says than to what the problem says.
+
+They literally become intoxicated to the problem, to where they are no longer moved by the depth of the problem. Twenty years of this condition, and they are no longer moved by that. Your senses have literally become drunk, where they can no longer evaluate the problem by a twenty-year span. Because of your personal ministry with the Holy Spirit before God in worship and thanksgiving for the answer to the problem, they have now come under subjection and are evaluating things according to what the Word says instead of what the problem says.
+
+They are intoxicated on the Holy Spirit, and they look at the Word of God through the eyes of the Holy Spirit. They have become as drunk as a wino to the problem. I do not mean falling-down drunk. I mean faith drunk.
+
+"How could I have possibly believed that God could not have done this? How could I have possibly believed that God could not have done this?"
+
+I am filled with the Holy Spirit in my soul realm, my mind, my will, my intellect, my emotions. I am filled. I have ministered to my heart so long that I am intoxicated. I am no longer evaluating the problem the way it used to exist. I am now under the ascendancy of the Holy Spirit.
+
+It may take a good chunk of your life. I am going to love you for it.
+
+As we wind down, let us talk about this one more time. Why did He say, "Be not drunk with wine, wherein is excess"? If I get drunk on wine, then the fact that I am drunk constitutes excess. I drank too much wine and became excessively drunk. The way you can tell a drunk man is because he has obviously departed from his senses and is intoxicated.
+
+A wino will stay drunk because life has overpowered him. You sober him up, he may commit suicide. It is a lifetime problem. Something reduced him to that. He may be forty years old and could not stand to see one more child in Vietnam blow up in front of him. If one human being can do that to another, he cannot stand life anymore. He comes back and lives in a bottle. He is tormented and lives in a bottle. The only way he can escape the sense realm that is with him every moment is to stay drunk.
+
+God is trying to get you to understand the state the Holy Spirit has to bring the sense man to in order to get those impossible kinds of miracles. It is much easier to believe they do not exist or leave them to somebody else.
+
+Before Jesus, I do not think anybody loved me. He has my life. He does not have more of it only because I have not been successful at beating myself out of more of it. I intend on Him having all of it. Nobody has ever loved me like Him. I do not have anything to give, but I will give back what He gave me. It pleases Him when I take human beings to heaven, and I intend on it.
+
+My sense man does not know how to do that very well yet, but He keeps teaching me.
+
+## A Damaged Hope Needs Daily Ministry, Not Occasional Words
+
+Now you tell me, after twenty years of looking at the problem, after running and getting the child from services when he wants to play with five-year-olds, after all the special attention and extra demand on the family, your sense man is troubled by hopelessness. Like the drunk who gets drunk to bear with a problem because life has so overwhelmed him that he is unable to cope with it any other way, so it is with attaining faith for that realm. Outside of intoxication of the sense man by the Holy Spirit, there is no way a believer can cope with a twenty-year problem like that. It is with you every moment you try to have faith. It is so overpowering. The evidence is staring at you every day.
+
+If your friends wrap their arms around you and say, "Well, you know God had a plan in this," it consoles a little, but what about your covenant?
+
+I have had twenty years of this kind of program. Twenty years. I brought my child to a thousand prayer lines. I did what faith people told me to do to some degree. Every time somebody asked me if my child was healed, I said, "Yes, we are believing he is healed. My child is healed."
+
+What makes you think that a program in your soul realm that took twenty years to run like that will be negated and brought under subjection with a flighty little word out of your mouth once a month?
+
+He said to minister to yourself in hymns and spiritual songs until the Holy Ghost is able to come out of the holiest of holies and pull your sense man, which is denying this, under subjection to intoxication, until you are able to leave the sensual proof behind and become drunk on what God said instead of the problem.
+
+You want to do that with a flighty word once every three months in agreement with some prayer some preacher prayed three months ago? The times you get desperate in hope, you haul them off to another meeting.
+
+Is this a quiet teaching?
+
+What would you do, Brother Roberson? As I said in conclusion, what would you do?
+
+Since it is my child, hypothetically speaking, I am believing that agape coupled with phileo, since it is my child, maybe it would push me enough into agape to do something. Maybe not. Maybe agape will push us far enough into agape to do something about your child.
+
+With anybody who has ever attained to that kind of miracle, usually it was with their own child, like Betty Baxter's mother. Usually we do not have enough love for somebody else's child. That is called a ministry. He who is greatest among you will be servant of all. He is willing to serve God's table to everyone.
+
+We would have revival around here. I think that is what we are dying to.
+
+## Diligence Rearranges Life Until the Word Can Rule the Soul
+
+What would you do, Brother Roberson? Your child, twenty years, and you just woke up. What would you do?
+
+What would you do if your job was such that you did not have much time to pray? What would you do if the cares of this world had so entrapped you that you did not have time to minister to your own soul except a few moments?
+
+And God knows. Yes, He knows. Of course He knows. And He is still waiting for you to change things so you can change things.
+
+I just love preachers who say they do not have time to hire help. So they run the vacuum cleaner themselves while working a job, while their wife works. They hire their wife out for seven dollars an hour to put televisions in every bedroom. They have to have a house that is profitable to the prosperity message. But never once do they think of selling all that junk and hiring somebody with the money who can take the time of vacuum cleaning so they can begin the process of bringing their soul under subjection to the Word.
+
+No, they say, "I do not have time."
+
+Oh, you do. You just have not come to God enough to believe that He even is, much less enough to seek Him.
+
+What would I do? I think this is what I would do, like I said three weeks ago. I do not know until I get there. If my child were there, I think I would go get one of those cans they put up around stores. I am speaking hypothetically. It would be against the law, of course, unless there were an organization that collected for a non-denominational work, and that work could be your child.
+
+You know how they put cans up: "Help this child get an operation. Give to this fund." I put money in those cans from time to time. If they operate on a child and that child can experience walking, it makes me happy.
+
+"Well, there are crooks who collect those cans."
+
+Some of them. But some of them will get to the child. If I have to give two dollars to one to get to a child, that is okay. He will give me another dollar because I gave the one.
+
+I would get a can that says, "Will you help my child get help? Give to this organization, New Creation Prayer Center family." Then I would go around and collect it and buy groceries and give it to my wife. If I had to, I would get a little one-room apartment, maybe a real cheap one. I would take that change, that money, pay the electric and the rent, and buy my wife groceries.
+
+Then I would go into the prayer closet at six in the morning, minister every day to my own soul until at least six at night, walk the floor, and worship God, giving thanks that He has exalted His Word above His name. I would give thanks that two thousand years ago His visage was marred more than any man, that He became the death of every disease known to mankind, and that His form was altered more than the sons of men.
+
+I would thank Him that He loved my child so much that He bore it, He became that for him two thousand years ago. I would thank Him for the next six hours for coming, because He came once to provide it, and He has healed my child.
+
+I do not care if I had to minister to my own soul twelve to fourteen hours a day for five years, until like Betty Baxter, Jesus came into her bedroom and touched her mouth, which was stuck on the side of her face. Her jaw had to be fed with a straw until she was thirteen. She was twisted in a wheelchair, two or three feet tall because she could never sit up. He came and stood in front of her. She could not even reach out to where He was.
+
+Her mother saw it and said, "Jesus, step forward please, so my daughter can touch You."
+
+He snapped around and looked at her. "Your faith is the reason I came," He said.
+
+He touched Betty. Her mouth snapped around front. Her body cracked and popped so loudly until it came to full stature. She had already bought a new dress and shoes for her first church service. She knew He was coming.
+
+To go from level one to level two, you must first believe that He is who He said He is. Then, to please Him again, you must believe that He is a rewarder of those who diligently seek Him, like the elders who obtained the good report and framed their generations. They changed the era they walked in.
+
+No, sir. Twenty years programmed with hopelessness. What makes you think it is not going to take you time in the closet to run a new program while looking at the other one?
+
+Change your finances. Change your dirty habits. Get yourself healed. Get yourself straightened out. Minister to yourself.
+
+I used an extreme problem, but it works in any realm.
+
+Stand up, and let us worship God.

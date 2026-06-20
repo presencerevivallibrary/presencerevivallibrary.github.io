@@ -1,0 +1,482 @@
+# Where Does His Voice Come From?
+
+We have been studying, "Sin shall have no more dominion over you." In studying this, we found the positional truth that the flesh has been declared dead, another word for mortification. Concerning sin's ability to use your flesh to dominate you and force you to sin, that dominion has been broken.
+
+Paul described that victory in Romans 8. We found that we have not received the spirit of bondage again to fear, but we have received the Spirit of adoption, whereby we cry, "Abba, Father," and His Spirit bears witness with our spirit that we are the children of God.
+
+In our study of mortification, we came to understand the position the flesh has been declared to hold, and how the flesh has been put to death, or mortified, by the Spirit. Then we came to the study of the voice of God on the inside of our spirit and how God operates it.
+
+We found that there are four different ways the Holy Spirit communicates with a person's spirit. The first is through the inner witness.
+
+This is why we quoted Romans 8: we have not received the spirit of bondage again to fear, but the Spirit of adoption, whereby we cry, "Abba, Father."
+
+I do not walk around with my spirit crying, "Abba, Father. Abba, Father." He explained what He meant in the next verse when He said His Spirit bears witness with our spirit that we are the children of God. The way He bears witness is by continually bearing witness inside you that you are His child.
+
+It really does not matter how bad the fear, bondage, or different things get. Have you noticed that He continually bears witness on the inside of you that you are His child? This is a continual process.
+
+There is not a waking moment, nor a moment when I go to bed, that I do not have a witness being borne inside me that I am His child. I cannot remember the last time I was without it.
+
+I hear people say, "I just feel like I am lost. I do not even feel like I am saved." I cannot remember the last time I did not feel saved. Continually, the Holy Spirit is bearing witness in my spirit, or bearing witness to my spirit, or communicating with my spirit that I am saved.
+
+This ought to interest you, because the foremost way He leads a believer is by the inner witness. If the Holy Spirit can communicate and bear witness with my spirit that I am saved, then He can certainly communicate with you and bear witness when you are heading in the right direction. He can certainly checkmate you when you are heading in a wrong direction.
+
+If He cannot, it is because we have not learned to listen or operate out of the inner witness, or because the turmoil in our life is so great that we cannot differentiate between the operation of our spirit and the emotional realms of the soul.
+
+The first and foremost way He leads a believer is by the inner witness.
+
+The second way He communicates is by revelation. Revelation is when He does something like putting an entire revelation on a tiny computer chip. He loads that little chip to the hilt with a whole revelation, a whole understanding of something, then passes it over into your spirit and suddenly releases the entire program in a millisecond.
+
+One moment you are sitting there and do not understand anything about healing, prosperity, or hardly anything. Suddenly the Holy Spirit capsulizes an entire revelation, passes it over to your spirit, and releases the entire program at once. All of a sudden, you understand a whole lot about it, and you stand there saying, "How do I know this? How do I know this?"
+
+He has communicated to you by revelation.
+
+This is how He mostly uses a believer in interpretation of tongues or prophecy. Somebody gives a tongue, and you are sitting there minding your own business. The Holy Spirit capsulizes the revelation in that tongue, interprets it, sends it over to your spirit, and explodes it. Suddenly you know what was in that tongue. You do not know how you know, but you know, and you pick your own words to give it. That, my friend, is interpretation.
+
+The third way He communicates with His children is that He plainly speaks inside your spirit. Today I believe we will get to how He does that. He speaks on the inside of your spirit, and you can hear Him.
+
+Much to some of your amazement and shock, it is not in King James, unless that is the only way you will hear Him. In fact, He has not spoken King James since the sixteenth century.
+
+How do you think God would sound if He were in China talking to someone? Do you think He would speak accented Elizabethan English? No. It would sound like Chinese, and the man would say, "God just spoke to me."
+
+"What did He sound like?"
+
+"Like King George."
+
+When I was first beginning to hear God's voice, He spoke to me in King James. When I first began to get prophecies, I thought the only way I could interpret a tongue was for Him to tell me and speak one sentence, then I would give the sentence, and then He would give me another sentence.
+
+So He gave it to me in King James. It was my signal. I would hear, "I say unto you," or "But I say unto you," and when I would say it out, another sentence would come. It was the funniest thing, but it was accurate. He would speak to my spirit, and I would hear Him and interpret the message.
+
+The third way He communicates is that He literally speaks inside your spirit. If you know it is Him, you can hear Him and be instructed.
+
+But many of us cannot differentiate between Him talking and us thinking of it. If believers in the body of Christ have proved anything, they have proved that a lot of people cannot tell the difference between the inner witness, God speaking to them, revelation, and their imaginations.
+
+Therefore, they get caught up and led all over the country. They are always bringing reproach on the gospel because they are always telling people, sinners included, "God spoke to me. God spoke to me." They cause a big mess because He did not speak to them.
+
+That does not exclude the fact that He does speak. He does. This is what we are studying: how to listen.
+
+The fourth way He communicates is by vision.
+
+It would behoove you to listen to what we are trying to get across. Psalm 1 says:
+
+> Blessed is the man that walketh not in the counsel of the ungodly, nor standeth in the way of sinners, nor sitteth in the seat of the scornful.
+> But his delight is in the law of the Lord; and in his law doth he meditate day and night.
+
+In view of the fact that there are ten thousand different kinds of churches, and every one of them has a King James or a modern translation, and they are all claiming, "Our denomination is inspired by God," while there is only one Holy Ghost, one revelation, and one Bible, who is right?
+
+Most of these people will not even cross the street to agree with each other. Yet Psalm 1 says this man's delight is in the Word of God, and in it he meditates day and night.
+
+In view of ten thousand different doctrines that cannot agree with each other, are you telling me there is a way the Holy Spirit gets involved with my spirit in meditation, takes the counsel that left the heart of God in the form of the Word, and reconstructs it in my heart in such a way that it becomes the counsel I desperately need to walk by?
+
+Yes. There is a way He gets involved with my spirit.
+
+When we talk about the voice of God and His ability to communicate with you, listen. There are ten thousand kinds of churches, all saying, "We have the truth," and only one Holy Ghost.
+
+Jesus said He came for one purpose: to guide you into all truth. The Word is truth. So who is right, these men or the Holy Spirit?
+
+They are all preaching something different. One is against tongues, another against healing, one for eternal salvation, another says you can be lost for missing a Sunday. This ought to tell you something about the leadership of the Holy Spirit: He does not push you into all truth. He leads. He does not force you into anything you do not want to enter. He guides.
+
+He was revealed at Jesus' baptism as gentle as a dove. He does not shove you around. If the leadership of the Spirit were so forceful that it was hard to follow anything wrong, then there would not be ten thousand different doctrines with men spouting their theology. If you strive and contend against Him, He will let you go.
+
+Where do you think all these denominations came from?
+
+Yet the man who delights himself in the Word of God and meditates in it day and night discovers a way the Holy Spirit gets involved with his spirit. The Holy Spirit takes the Word of God, the counsel that left the heart of God in the form of the Word, and reconstructs it in that man's heart in such a way that it becomes his teaching and counsel.
+
+The Holy Spirit literally takes the Word I hear, counsels me with it, and interprets it to me.
+
+Even though so many men have the Holy Ghost but cannot hear Him, there still has to be a way. Men talk with tongues and preach, "I have the truth," yet cannot agree with the man down the street who says he has the truth. Men get on television and fight with each other over the book of Revelation, over healing and whether it is God's will, and over prosperity.
+
+Yet they have the Holy Spirit. If having Him alone merited perfect leadership, then you would be a smart fellow, would you not? Evidently it does not.
+
+There is a way He gets involved with my spirit. There is a way that, as I meditate the Word day and night, He can take the counsel that left the heart of God and reconstruct it in my heart so that I understand it. It becomes the counsel I desperately need to walk by, so I do not have to take my counsel from the world, but from God.
+
+You hear preachers say, "Just go hear them, but be careful. Eat the grass and spit the sticks out."
+
+That is what we are supposed to be doing for you. Teachers and pastors are supposed to be doing that.
+
+Peter said:
+
+> Feed the flock of God which is among you, taking the oversight thereof.
+
+That is our commission: feed the flock of God. It is not your job to sit here and pick the sticks out of my sermon. That is my job. I am supposed to gather you into the sheep pen and guard you against the wolf. You are not supposed to guard me against the wolf. I am supposed to guard you. I am supposed to pick the sticks out and give you the hay.
+
+Why have so many people gone astray? Because they blindly followed somebody who taught them something that was not true, until eventually they were taking communion in Guyana.
+
+Jesus said if the blind lead the blind, both fall into the ditch. Do you think that because you were innocent, and that blind teacher led you into the ditch, you are immune? I can give you a list of hundreds of people who have been led into the ditch and died there because they could not attain what they needed.
+
+We have the Holy Spirit, and He is resident on the inside of our spirit. He came to lead and guide you into all truth. John 17 says, "Thy word is truth."
+
+There is a way He gets involved with your spirit to take the Word and counsel, to lead you and guide you, to give you the inner witness, to give you revelation, to speak in your spirit, to guide your businesses and ministries, and even to give you visions.
+
+There is a way you can edify your spirit. There is a way you can take your ground and prepare it so that it becomes a haven for the Holy Spirit to operate in. But it is certainly not in a social gospel. It takes a giving of your life to Him.
+
+The baptism of the Holy Spirit took place in my human spirit. The Holy Spirit communicates with my spirit, and He does it mostly by revelation.
+
+Again, revelation is when He capsules an entire revelation like a computer chip, sends it over to my spirit, and suddenly releases the whole understanding in a millisecond. At times, when I have been meditating on a verse, that verse suddenly exploded both directions, through the Old Testament and into the end of the New Testament, and I understood it.
+
+It took me a while to go back and research it through, and even longer to preach it out, but the whole thing came in a millisecond.
+
+Because my call is ministry, it is hard for me to do anything else. I cannot muster up any interest. This is the only thing I live for. It is really the only thing I am interested in spending my life for. I am called to deliver the Word of God. It is ministry.
+
+But all of you are not called to do what I do. There are helps, governments, and businessmen among you. This revelation, this communication by the Holy Spirit, is here to serve you and your call and capacity as much as it serves me.
+
+As I told you before, if I were called to be a businessman, I would pastor my business.
+
+Just because I am preaching and handling the Word of God, do you think there is automatically more desire in my heart to see people born again than there is in you? No. I do not have, and should not have, any more desire to see people born again than a businessman has. Our avenues to get them born again would be different. Mine would be handling people directly. Yours would be direct witness and supplying money to get them born again.
+
+It would not matter which role each of us took. The reward would be the same because we would be functioning in our respective positions in the body of Christ.
+
+What I am trying to tell you is this: the same equipment available to me is available to you. I pastor my call. You would need to pastor your business. If you did, He would make you rich.
+
+"I really do not have time to pray. I am too busy making a living."
+
+Oh. I am sure glad the last bunch of believers who brought revival to their generation and their town did not use your excuse.
+
+God communicates with my spirit. The Holy Spirit communicates with my spirit because He is a Spirit. The baptism of the Holy Spirit took place on the inside of my spirit because it is in my spirit where all permanent change takes place. Once that change is ordered in my soul, it affects my body and is ordered in my body.
+
+He communicates with my spirit because He is a Spirit. I would like it if He spoke more to my mind. I would like it if Jesus walked into the room and talked to me in person more often. But He does not. The Holy Spirit has received that ministry, and He ministers to me continually on the inside of my spirit.
+
+All you have to do is familiarize yourself with His ministry and learn how to listen to Him, because He is the only one who can equip you.
+
+This is why, to some degree, when you lock your mind up in a book during prayer, you sometimes will not receive the full benefit.
+
+"Why?"
+
+Because you are ordering your mind, and your mind is reading. It may be a scriptural book. It may be good. But the Holy Spirit may be trying to work something else in your life and praying part of your ministry. You are sitting there with your mind over in Timbuktu, reading about what happened to a missionary when she went up the Amazon. That is great for her, but He is trying to get you to understand something about your ministry, and He cannot get it over to your mind because you have your mind locked up in a book.
+
+There are times when you need to say to your mind, "Listen, I am going to teach you how to become a servant to my spirit. I am going to teach you how to listen to the spirit."
+
+"But I do not like to be without intellectual food for more than three minutes at a time."
+
+"You can be quiet and learn how to listen anyway."
+
+"But I will not like it."
+
+"You may not like it, but you are going to learn."
+
+"But I want to wander around."
+
+"Are you telling me reading the Word of God is bad?"
+
+No. The first thing I would read is the Word of God. At times in praying in tongues, I will take a turn praying and reading, because I know He is trying to communicate the revelation I am reading.
+
+But there are also times when I put my Bible down, lean back, and pray for a couple of hours in the Holy Ghost, doing nothing but adjusting my mind to listen to the place in me where He communicates, in case He wants to get something over to me. He might be wanting to get something over to me from Timothy, and I may be over in Revelation.
+
+There are times when I shut my mind up, make it become a listener and servant to the spirit, and command it to be quiet. I have found that it is usually in those quiet times that revelations explode and He begins to communicate with me.
+
+He communicates with my spirit because He is a Spirit. The prime way He communicates is not with my brain, but with my spirit.
+
+My spirit has been created in God's class. Science has even recorded that there is some part of a human being that can receive and store millions of bits of information per second. They do not know how, but they know its operation far exceeds the conscious mind.
+
+I can tell you something, and you can forget it ten minutes later. They do not really know how to analyze it. These men who teach success try to teach people how to tap into it, but all they have done is become fascinated at times with the operation of the inner man.
+
+The inner man is the part God communicates with. Because of his tremendous ability, God can capsulize a revelation, send it over to your spirit, and explode it. You can understand it in a millisecond, while that same revelation would take Him a month standing in your room to get over to you.
+
+So yes, when I am praying in tongues, there are times I do not do anything with my mind on purpose.
+
+When I come into the prayer center to join with believers and pray, I do not want a book in front of me. I get enough of that when I am driving my car and praying in tongues, when my attention is demanded. I get enough of that when I am doing other things while praying in tongues. My brain's attention is demanded for what I am doing while my spirit is edifying and praying mysteries up before God, which He will undoubtedly communicate with me.
+
+But when I come in and sit in a chair, and my body is not assigned to do anything else, it is going to learn a new form of discipline. I shut it down.
+
+"Be quiet, mind."
+
+I close my eyes, unless I am walking, because I want to block any distractions, anything that would take away from my ability to listen to the part of me He communicates with.
+
+When I set a precious two hours aside to come into the prayer center and pray, I am not going to stick a book in front of me. I get enough of that when my mind is distracted at other times when I am praying.
+
+When we go those eight hours, you might read your Bible for a while. But make sure you get those two-hour spans or so where you shut that attention down.
+
+Your mind is like inertia or gravity. Once it gets rolling, it does not want to stop. My mind wants to roll. It wants to think about everything under the sun. My spirit may be praying in tongues, but my brain is wondering how to fix this and how to fix that.
+
+One time, I got something in my mind. I had created this water trap where, when our boys walked into the bathroom, it dumped a bucket of water on them, just to let them know I loved them. They came downstairs yelling and all wet.
+
+I was praying in tongues, and my mind kept going over the creation of that trap. I could not get it out of my mind. I could see myself drilling, bending wires, fixing triggers and strings, and figuring out this part and that part. I would get my mind off it and say, "Stop that. Stop that. You should not do that."
+
+Then I would try to get my mind back to listening, and it would wander right back over to creating that trap. There is a gravity about your mind. Once it starts rolling, it wants to keep going.
+
+Have you noticed your mind does not have any trouble exploring things? For those of you who are professional worriers, you are highly developed at it. Even though your spirit is edifying, your mind is performing its chosen profession and worrying up a storm.
+
+This was quite a problem when I first learned to pray, because I was locking myself up for six-hour shifts like you are going to do for eight hours. My mind went crazy. I finally let my body follow my mind. It went crazy too.
+
+I ended up walking down a riverbed, kicking every green rock. Not just any rock would do. I had to look for green ones. My mind was so bored it had to do something. I would kick a green rock, then pick a bright red leaf because it was fall and the leaves were turning. I would go over and pick that off just to look at it.
+
+I finally let my body go. I was wandering around kicking rocks. I was so bored I could not stand it. My mind was used to having its way all the time, running every minute. Television had entertained it, and every minute it wanted something.
+
+It took quite a while, in an eight-by-eight room or walking up and down the river, because nobody told me to do this. At first, I tried to control it. It would start thinking about building the trap, and I would bring it back. It would start thinking about something else, and I would bring it back. Finally, I gave up and let it explore things.
+
+The only thing I did not do was let it get naughty. If it wanted to think about something that was not good, I would say, "No, you do not. Come back over here. You can think about these other things."
+
+After a while, like gravity or inertia, when something rolling finally slows down, the mind began to wear down and say, "Okay, I am ready to listen." Then it became a receptor.
+
+My God, some of the revelations I am preaching now I received in those days. I learned how to listen.
+
+It was not long after that before I could lie still, with nothing moving but my eyes blinking, and pray six hours. My mind would try not to dictate to my body to get up and wander around. More and more peace came. When peace came, rest came.
+
+I found out that after my mind quieted down, it began to receive more and more edification and revelation knowledge.
+
+One time I was watching myself on the PTL Club. They re-aired it, and I was in my room praying when it came on. I was listening to a Kenneth Copeland tape, and then I came on the television, so I turned it on. I was watching myself, listening to a Kenneth Copeland tape, meditating on a chapter, and doing it all at once, and retaining it.
+
+The first thing that will happen is peace will begin to dominate your mind. It may take some of you longer than others, but peace will begin to dominate.
+
+When a person's mind is full of care, worry, and torment, have you ever had your mind go blank? I had that happen to me before I was thirty years old. A policeman would stop me and ask my name, and I could not think of it. The first big income tax check I ever got back, they asked me to sign my name, and I forgot how.
+
+Oppression robs your mind. Cares, torment, and worry over an extended amount of time will cause oppression, and oppression will begin to cause your mind to go blank, and senility and things like that.
+
+But a mind that is full of rest and peace over long periods of time will begin to restore itself. It is fantastic. If I were you, I would learn how to pray.
+
+You might ask, "Brother Roberson, you said that you shut your mind down so you could listen to that part of your spirit where you hear God. Would you help me isolate that, the ear of my spirit? Can you teach me how I could close my eyes, shut everything down, and monitor or listen to my spirit, in case the Holy Spirit is going to say something to me?"
+
+Yes, I can.
+
+As I said the other day, whenever I am introduced to somebody for the first time, I usually only catch half their name. Sometimes I have to ask their name three or four times and still do well to get it.
+
+The first few times I am introduced to somebody, I learned to do something on purpose, and now I do it almost automatically. Just about the time I know it is going to be a new introduction, I switch over. I pull my mind under subjection to my spirit and begin to listen to Him.
+
+I can do it so completely now that anything He says to me is louder than you. I may be sitting there looking at you, and even when He is not saying anything, I am monitoring my spirit so loudly that I see your lips moving, but I am not paying attention to what you are saying. I am listening for, or to, another person.
+
+The Holy Spirit has saved me lots of heartache, because many times He will give me a profile of the person. He would not give it to me if I would use it to hurt them. One of the first stipulations for Him to really communicate with me was that I had to come to a place where I would not hurt people. I will not hurt them.
+
+When I shut down, He may give me a profile almost immediately. I may know what a person is capable of. I am glad for that.
+
+Sometimes He lets me know that the person has all these faults, but they are developing a ministry and He wants to use them. He wants me to weather all the faults and keep training them in the ministry. At those times my hide has to be a little thicker.
+
+It breaks my heart when I fail with these people, when they leave the prayer center as mad as when they came. I extend myself and thicken up my hide because I know I will have to weather a storm with that person, but I do not mind because He has given me peace.
+
+I appreciate the warning of the Holy Spirit. He will warn you too.
+
+How many of you have ever been warned, and you went ahead anyway? He warned you, then the person was so charismatic, so overpowering in their deceptive personality, that after you got that quick little inner witness, you went into a full-blown relationship with them. Before it was over, they made you wish you had never been born. Then you remembered back and said, "I did have a check. I do not know why I did not listen to it."
+
+Because Mr. or Mrs. Charismatic overpowered you.
+
+Most of us are not going to be sure in those areas until we first learn what to do to develop ourselves, how to operate with Him, and how to listen to Him.
+
+Let us start understanding how to shut down and learn to listen to the operation of the Holy Spirit.
+
+Look at 1 Corinthians 14:14:
+
+> For if I pray in an unknown tongue, my spirit prayeth, but my understanding is unfruitful.
+
+This is Paul speaking in the first person, so I can say it in the first person: "If I, Dave Roberson, pray in an unknown tongue, my spirit prayeth."
+
+When I spend those hours in prayer, my understanding is unfruitful. The part of my understanding he is talking about is the ability of my physical brain to analyze languages. It is unable to analyze the language coming out of my spirit.
+
+If I come up to the altar and lie down and begin praying in tongues, I am qualified for that verse. I am lying there praying: "If I, Dave Roberson, pray in an unknown tongue, my understanding is unfruitful."
+
+It is not that I eventually will not understand the mysteries I prayed up before the Father. But at that point, when I spend eight hours in prayer, I may not understand with my mind one syllable that came out of my spirit, because it is a language I am unfamiliar with. I do not have the word-for-word translation unless He gives me the interpretation.
+
+He usually does not do that except in a public service for the edification of the body. The way He gives me interpretation when I am praying privately is by exploding the mysteries and revelations on the inside of my spirit. At that point, it is not necessary for my mind to understand every syllable He passes through my spirit.
+
+When I spend that eight hours, my brain is unable to decipher or change word for word into the English language what is being prayed. It does not work like that during private prayer. There is not a word-for-word translation.
+
+Paul says, "My spirit prayeth." Is the Holy Spirit the One who gave us this language? Is He the One speaking when someone says, "They are praying in tongues by the Holy Spirit"? Is He the One who originates the language of tongues? Yes.
+
+Then what is Paul talking about when he says, "My spirit"?
+
+Is he talking in the first person, that I now possess the Holy Spirit, so "my spirit" means "my Holy Spirit"? Or is it really my born-again, new creation human spirit doing the praying?
+
+Which one?
+
+Somebody yell, "Both." Correct. You are safe to stay with the Word.
+
+You could say my human spirit is doing the praying. The Holy Spirit is supplying the language, but Paul says it is my human spirit that is doing the praying.
+
+There is a transfer of power here, and there is a reason for it. You and I are the body of Christ. Jesus is the Head. Wherever His body is, He has authority in this earth.
+
+When the Holy Spirit transfers that language to my human spirit, He also transfers authority. In other words, I, Dave Roberson, as part of the body of Christ, am now praying a prayer He gave me as a member of the body who has authority on this earth to change things.
+
+There was a transfer of power.
+
+Because we are so dumb, the Holy Spirit says, "I have a lot of praying and edifying I need to do. I need to teach you. I need to work your ministry. I am searching your heart. I know the plan of God, and I am making intercession for you according to the will. There are many things I need to pray through you for your personal life and ministry. Therefore, I am supplying the prayer and the prayer language. You supply your spirit, and I will pass it through it."
+
+My God, it ought to be hard to fail. He is praying the perfect prayer through your spirit, and He will do it as long as you lie there and do it.
+
+When we jump up and say, "I do not have time," what do we have time for?
+
+If my human spirit is doing the praying, and the Holy Spirit is supplying the language, then somewhere there was a transfer of power. Somewhere within my spirit, the Holy Spirit is literally bringing those words of tongues into existence. Somewhere in my human spirit, the Holy Spirit is firsthand creating each syllable and word of tongues.
+
+In order for my spirit to do the praying, somewhere in my spirit there had to be a transfer from the Holy Spirit to my spirit for me to communicate that language.
+
+Where does that take place?
+
+If you find out where, then you will find where to shut down and what part of your inner man to monitor when you want to know if God has anything to say about your problem.
+
+An interesting thing took place after I had been in the ministry a couple of years. I was locking myself in the closet and learning how to shut my senses down long enough to listen to the Spirit. I was not very good at it, but I was learning.
+
+I was in my closet and had spent the morning in prayer and edification, just lying there edifying myself, the Holy Spirit privileging me by passing a supernatural language through the authority of my spirit. I am His body, and I do have authority on this earth. He transferred that power in a perfect prayer designed for my personal edification.
+
+I was lying there praying in the Holy Ghost. I do not know what I was expecting. You will find that unusual anointings begin to pass through you if you give yourself to endurance.
+
+It seemed like some kind of dome settled over me, and I was in the Holy of Holies. Everything became very quiet. It happens to me now when He changes the anointing. I may be walking around ministering, and suddenly things go deafeningly silent. When that happens, my spirit clears, and the operation of a gift comes in. Things get very quiet, then the operation of the Spirit begins to come, and I can start hearing Him say things.
+
+When He first began giving me words of knowledge to any degree, I almost had to get falling-down drunk to hear Him. Later, the drunkenness tapered off, but I could still hear. I understand now that I was so unsure of myself that He had to literally drown my senses, intoxicate them like a drunk man, to make me know I was enough in the Spirit to trust what I was getting.
+
+Now it is not so necessary. A deafening silence comes, and I slide over in the Spirit. I found out how to shut down on purpose and listen. He knows when I do it, and if He is going to say anything to me, He usually does it then.
+
+People have come up after I taught on this and said, "What did He tell you about me?"
+
+I say, "I do not want to hurt your feelings."
+
+"Do not worry. It will not affect our relationship."
+
+It seemed like a dome settled over me, and I was locked in the Holy of Holies. I believe the closet Jesus talked about is more than a physical closet. It is entering into that private place in the Holy of Holies, your spirit with His Spirit, and learning who God is. Who else are you going to learn it from?
+
+Things got very quiet, and I slid over into the Spirit. He taught me some things about His voice that day.
+
+All of a sudden, in the Spirit, I could see the anatomy of a man. I saw his whole outline, so I knew it represented the physical part. Then I saw what appeared to be, wall for wall, a glow on the inside, which I knew to be the hidden man of the heart filling the outer man: hands to hands, eyes to eyes.
+
+Then I saw a bright glow that went from the mind down to the chest area, circling that whole region like a brilliant glow.
+
+I have always been fascinated with the voice of God and with preachers or evangelists who heard that voice. I pestered them relentlessly. At times they would finally open the door to their trailer and say, "Excuse me. I have to go to bed."
+
+I wanted to know how they heard His voice.
+
+"Well, He spoke to my spirit."
+
+"Where is that?"
+
+"Well, the Bible says, 'Out of your belly shall flow rivers of living water,' and belly means inner man or spirit."
+
+So they would say, "He spoke to my belly, my inner man."
+
+I would say, "Whereabouts, please?"
+
+"He just spoke to my spirit."
+
+"How did He do it?"
+
+"He just spoke way down on the inside to my spirit."
+
+They would pat their belly. I would say, "Would you please identify the approximate region? The belly button area? A little higher? Where did He talk?"
+
+"Way down in my spirit."
+
+"No, I do not know."
+
+Most preachers say, "God spoke to my heart," and they put their hand over their physical heart, because they say it came from way down in their spirit, almost as if God went down as low as He could in some well. It is as though God drilled a well down your throat and revelation comes up from that well.
+
+The truth is that it does come from somewhere deep. It seems to come from way down there. But what God actually communicates with is the mind of your spirit.
+
+The hidden man of the heart, the spirit man, has a brain like you do, and it fits in your natural brain. God does not move out of His brain, go down through the belly button region, and talk down there. He communicates with your spiritual mind. Guess where that is? In your head.
+
+I thought He talked down there because the spiritual mind lies beneath the natural mind. It gives depth. When things come from the spirit, there is an understanding and depth to them, so they appear to come from the belly button region. But actually they come from the recesses of your spiritual mind. They seem much deeper than your natural mind, but they are there.
+
+In that glow, I saw the spirit man's mind. I saw the Holy Spirit literally creating tongues, creating the tongues in that light. The moment He created them, they came outward to the outer man's mind and out through the man's tongue. He continued to create those words, and I realized that was where the Holy Spirit spoke to me.
+
+Let me give you an example. This is what He did with me.
+
+He had me pray in the Holy Ghost for a while. I was praying the whole time I was receiving this. During that time, while I was seeing this, He impressed me to stop. He said, "Stop."
+
+I stopped, but the tongues did not stop. He continued to create them on the inside of my spiritual mind. When I did not let them come out of my mouth, they floated up to my natural mind, and I could hear them.
+
+The Holy Spirit kept creating them, and I could hear them.
+
+If you respond to the Holy Spirit right now and say, "I want to pray in tongues," immediately He will supply the language. If you do not open your mouth, you can hear those tongues being created somewhere on the inside of you.
+
+You are hearing the ear of your spirit. You are hearing God's voice.
+
+What is He saying? Tongues.
+
+Where is He saying it? In your spirit.
+
+Can you hear it? Many of you are hearing God's voice for the first time.
+
+Let us demonstrate this. All of you who can, pray in tongues forcefully until I say stop. When I say stop, cut it off immediately. You will create a river, a spring, and it will continue to flow up to your mind. I want you to listen to where this language is created in your spirit for a moment. Familiarize yourself with it.
+
+When you come up and I shut down, that is exactly the area I monitor.
+
+Some of you will have trouble at first because you hardly pray in tongues. The more you pray in tongues, the more the siphon holes will open, and the more familiar you will become with the Holy Spirit, the language, and how He uses you.
+
+When I tell you to begin, begin. This is an unusual service.
+
+Pray out loud. Begin.
+
+Now close your eyes and get ready. When I stop, the tongues are not going to stop. They are going to keep floating up. I want you to listen to their origin.
+
+Stop.
+
+You just heard God speaking in your spirit. He can change that to English, Chinese, Japanese, or any language on the face of this earth. He can bring it through your intellect and through your tongue. He can speak any language, or He can speak English and just talk to you on the inside.
+
+That is where the inner witness will come. That is where the check will come. That part of your spirit is the part the Holy Spirit communicates with. He created that language on the inside of your spirit. He can also create English on the inside, and you can hear English come into existence.
+
+He wants to fulfill the Word in you. In view of ten thousand doctrines and one Holy Spirit as the Teacher, let us face it: we had left the teaching ministry of the Holy Spirit.
+
+Let us prove this with Scripture for a moment. Luke 16:19 says:
+
+> There was a certain rich man, which was clothed in purple and fine linen, and fared sumptuously every day:
+> And there was a certain beggar named Lazarus, which was laid at his gate, full of sores,
+> And desiring to be fed with the crumbs which fell from the rich man's table: moreover the dogs came and licked his sores.
+
+I just love King James: "fared sumptuously every day."
+
+It came to pass that the beggar died. His body was buried or whatever, and he was carried by the angels into Abraham's bosom. The rich man also died and was buried.
+
+He died, and in hell he lifted up his eyes. How many think the grave is hell? No, the grave is what held his body. The rich man was in hell.
+
+Notice: in hell he lifted up his eyes. My God, you mean my spirit man has eyes? Is this not incredible?
+
+In hell he lifted up his eyes, being in torments. He also had emotions. He saw Abraham afar off and Lazarus in his bosom. He cried and said:
+
+> Father Abraham, have mercy on me, and send Lazarus, that he may dip the tip of his finger in water, and cool my tongue.
+
+We know that people in heaven have the tip of a finger. The way we will be known as we are known, we will probably fingerprint each other. We know that people in hell have eyes, and we know that people in heaven have fingertips.
+
+Then he says, "cool my tongue." My God, people in hell have tongues.
+
+Can you see all these eyes and tongues lying around in hell?
+
+When my children were little and asked me about dying, I looked behind the stove and found an old leather glove. I put it on and said, "This is what dying is like." Then I slipped the glove off and said, "You just step out of your body."
+
+If I had the ability to stand before you right now, and my hidden man of the heart, my spirit man, stepped out and stood over here while I left my physical man standing here, my inner man would have hands, eyes, nose, ears, and hair. In fact, he would look exactly like the physical man minus age and defects.
+
+If you are bald-headed, you might as well go ahead and comb your head, because your spiritual hair is still there. You might ask it to clothe itself in flesh again.
+
+If I stepped out of the body, my inner man would have hands, eyes, nose, and mouth. If he has all those organs, he also has a brain.
+
+This physical hand gives my spirit hand authority to operate in the natural world. Because I am wearing it, I can contact physical things. It allows my spirit hand to operate through my physical hand and clasp a physical object.
+
+In the same way, I have a spiritual brain that fits into my physical brain. My physical brain allows my spiritual brain to operate in a natural world and translate what I am receiving in the spirit into natural operation, language, existence, the soul realm, and all those things.
+
+I will close this session with this. I did a meeting with Ronald Coyne, the plastic-eye miracle. You would tend to think it has to be phony. Certain magazines challenged him as a fraud, and they were the ones who ended up trying to keep it quiet.
+
+As a little boy, he poked his eye out. Daisy Osborn, or T. L. Osborn's mother, or somebody prayed for him. Suddenly he yelled, "I can see! I can see!"
+
+She said, "Come on up. That is a good testimony."
+
+He said, "No, you do not understand. My eye was plastic."
+
+She said, "My God, let me see."
+
+From that day to this, he has had this plastic eye that you cannot see through. When he pops it out, all you can see is the back of his eye socket. He is not bashful about holding it open so you can look all the way to the back.
+
+The first thing he did was have me help tape his good eye. I knew he could not see out of it. Then he popped the plastic eye out and held his socket open. I got down and looked in there, and there was nothing in there. Here was the eerie feeling: he was looking back at me.
+
+He demonstrates this by reading the finest print on a driver's license.
+
+That night I went back and said, "God, I am really confused about this. He does not have an eye."
+
+The Lord said, "Oh yes, he does."
+
+I said, "No, he does not have an eye."
+
+"Yes, he does."
+
+"He does not have an eye."
+
+"Yes, he does."
+
+What God did in him was a miracle in reverse. Ronald did not have a physical eye, and he needed a physical eye to operate in this physical world. His spiritual eyeball would normally have problems operating without the physical eyeball. So God opened his spiritual eye to operate in this world without the aid of a physical eye.
+
+You say, "He does not have an eye." Yes, he does. God did a miracle so that he can see in the natural realm without the aid of a physical eye.
+
+That is a tremendous creative miracle of God. What would you do if He did another kind of miracle? If you had your physical legs cut off, you would have a lot of problems walking on your spiritual legs. They would not hold you up, but they are there. They just do not operate in this natural realm.
+
+Would it not be something if God did a miracle in reverse, and a man with his legs cut off came jogging down the highway in shorts?
+
+That eye is that incredible. He can see without an eye. The people who want to expose him get partway in and then quit, because he will run any test they want, and he can see with no eye.
+
+My friend, you have a spiritual brain, and the Holy Spirit communicates with it. It is your mind, actually: mind, will, and intellect. The Holy Spirit communicates with him.
+
+The more you pray in tongues, the more you will familiarize yourself with the part of you where He actually creates that language. When you become familiar with that, it is the same part of you where He will create English. That is where He gives the inner witness.
+
+The Holy Spirit communicates with your mind.
+
+Let us stand up and worship God.

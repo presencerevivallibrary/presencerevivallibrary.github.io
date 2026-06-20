@@ -1,0 +1,291 @@
+# Paul's Source of Revelation Knowledge
+
+## Praying in the Holy Ghost Throws You into the River of Revelation
+
+We have been studying prayer and that major key of praying in the Holy Ghost. First Corinthians 2 actually reveals Paul's source of revelation knowledge.
+
+If there is any teacher I have ever been amazed with outside of Jesus Christ, it is Paul. Every time I open the Word of God and see the bits and pieces of his knowledge recorded in the epistles, I stand amazed. Yet in 1 Corinthians 2, he reveals his source of revelation knowledge.
+
+For you and me to yield ourselves to the Holy Spirit is to experience this process of mortification. One major key that assists you in yielding to Him is praying in the Holy Ghost.
+
+When you begin to pray any amount in the Holy Ghost, it takes you to the mouth of the river and throws you in. Praying in the Holy Ghost is the equivalent of throwing yourself into the river of revelation knowledge.
+
+One thing you find common to Paul's life is that he had the audacity to write the entire Corinthian church, every man, woman, and child, and say:
+
+> I thank my God, I speak with tongues more than ye all.
+
+If he had stood them up individually and asked, "How much do you pray in tongues?" one might say two hours, another four hours, another three hours a day. Yet Paul had the audacity to say, "I thank my God I speak with tongues more than you all."
+
+Paul was responsible for recording probably three-quarters of the revelation knowledge in the New Testament pertaining to the grace of God, the mysteries, the covenants, faith, and the operation of the Church.
+
+Where did he get his information when there was no New Testament, no ink and paper to turn to?
+
+First, Paul as a Pharisee studied and memorized the Law something like seven hours a day beginning at the age of three. Praying in the Holy Ghost does not replace meditation in the Word. Paul had given himself to the Law, and that is why tremendous Old Testament quotations come continually through his teaching as he reveals Christ.
+
+But where did the revelation of the mystery of Christ come from? He said, "I thank my God I speak with tongues more than you all." The effect it had on him was that he walked like almost no man has ever walked and fulfilled his ministry more fully than any man outside the Lord Jesus Christ.
+
+## One Paragraph of Tongues Contains a Mystery, but Hours Build Understanding
+
+I have told you about the ongoing war with my truck. If I sat you down and made one paragraph statement about my truck, I might say, "It is a 1987 Mazda four-wheel-drive truck, B2600," and give you some particulars. How much would you know about my truck? Not much. You would probably be glad when the paragraph was over.
+
+One paragraph will not supply you much information.
+
+Yet I can pray one paragraph in tongues. I can do it right now. The Holy Spirit makes one mystery, one statement of mystery, inside my spirit. One day I will understand it. I am excited about what He said because I know it will cause me to be edified.
+
+But what if I sat you down and bored you for eight hours about my truck? I could describe every bolt in it. I could say, "When you lift the hood, this is what the distributor cap looks like. This is the carburetor. This is the module. This is the computer system. This is the harness that inputs the computer system and monitors how my engine performs under every circumstance. It has an automatic transmission, three speed."
+
+You might get bored because you are not interested in that. But after eight hours of me speaking statements about my truck, you would know a whole lot more about it than you did before.
+
+One paragraph gives a little knowledge. Eight hours gives a whole lot more.
+
+No wonder Paul would say, "I thank my God I speak with tongues more than you all." Of course, when conducting a service and teaching others, he conducted himself differently. But when it came to his private prayer life or praying with other groups of people, he said, "I want you to know I thank my God that I speak with tongues more than you all."
+
+When you walk the floor, lie along the wall, and speak mysteries for eight hours in the Holy Ghost, think about the day you will have when He starts answering them.
+
+## Paul Spoke Wisdom Hidden from the Princes of This World
+
+Let us look at what Paul said when he revealed the source of his revelation knowledge. I want to go where he lived. I want to go in the Spirit where he lived.
+
+First Corinthians 2:6 says:
+
+> Howbeit we speak wisdom among them that are perfect...
+
+The word perfect means mature. Paul says, "We speak wisdom among those who are mature."
+
+He continues:
+
+> ...yet not the wisdom of this world, nor of the princes of this world, that come to nought:
+>
+> But we speak the wisdom of God in a mystery, even the hidden wisdom, which God ordained before the world unto our glory:
+>
+> Which none of the princes of this world knew: for had they known it, they would not have crucified the Lord of glory.
+
+Had the presidents, kings, and princes of this world, all the kingdoms that came and went before the Cross, known that it was the Lord of glory they were putting to death, they would not have crucified Him.
+
+That knowledge was hidden from them in a mystery. It was hidden from the devil and his crowd for the purpose that they would crucify Him. The guilt, condemnation, and sin of the world were laid upon Him. He was proclaimed guilty, and because of His death and resurrection, we live.
+
+The devil probably would not have moved on it had he understood it. But it was hidden in a mystery, and they crucified the Lord of glory.
+
+## Mystery Means Knowledge Available Only by Divine Illumination
+
+Paul says:
+
+> We speak the wisdom of God in a mystery...
+
+If you were going to underline any word, underline mystery.
+
+I prayed and prayed over this word. I studied it in the interlinear and broke it down in the Old and New Testaments, mostly because I knew that when I prayed in the Holy Ghost, I was speaking mysteries.
+
+The closest spiritual definition of mystery is this: that which is out of the range of unassisted natural apprehension and can be made known only by divine intervention, and only to those who are illuminated by His Spirit.
+
+Paul is saying, "We speak the wisdom of God in a mystery."
+
+What mystery? The mystery of everything Christ is in you, the hope of glory. This mystery was hidden since the foundation of the world, but now it has been made available to you and me, the Church of grace.
+
+It was out of the range of unassisted natural apprehension. Men could not simply walk in and know about Christ. It had to be revealed by the Spirit. Kingdoms came and kingdoms went, and it did not enter into the heart of man. But now what was ordained before the foundation of the world is made available by the Holy Spirit.
+
+Paul revealed his source of revelation knowledge:
+
+> But God hath revealed them unto us by his Spirit.
+
+## The Spirit Searches the Deep Things of God to Reveal Them to Us
+
+First Corinthians 2:9-10 says:
+
+> Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him.
+>
+> But God hath revealed them unto us by his Spirit: for the Spirit searcheth all things, yea, the deep things of God.
+
+Whole kingdoms had come and gone, and that information was not available. But under this dispensation God has revealed these mysteries to us by His Spirit.
+
+The Spirit searches the deep things of God with the intention of revealing them to you.
+
+The spirit of man is the candle of the Lord. The part of me He uses to illuminate, to give revelation knowledge to, and to speak to is my spirit.
+
+The Spirit of man is the candle of the Lord, searching all the inward parts. There is a whole world on the inside of you, and even the people closest to you sometimes do not know what is going on in that world.
+
+Paul explains it in verses 11 and 12:
+
+> For what man knoweth the things of a man, save the spirit of man which is in him?
+>
+> Even so the things of God knoweth no man, but the Spirit of God.
+>
+> Now we have received, not the spirit of the world, but the spirit which is of God; that we might know the things that are freely given to us of God.
+
+Who knows everything about you as an individual? Who really knows what is working on the inside of you? The human spirit that is in you.
+
+Paul says it is the same with God. There is a gap between you and God, and there is no way you can know what is going on inside God except by the Spirit of God. Yet He has joined the two together. He has given you His Spirit so the Spirit can search out the deep things of God with the intention of revealing them to you.
+
+That is why He has given you the privilege of speaking mysteries hour after hour before God, with the intention of searching you and God out and bringing the understanding of Christ to you.
+
+## God Sees Past Our Excuses to What We Really Are
+
+Nobody could know what was really going on in me unless my own spirit knew it. I can pass myself off. In the past I have used excuses for weak areas, but I have stopped because I have called myself into accountability. I will not afford myself excuses anymore.
+
+The further I walk into God, the kinder and more loving I have to become, because I see people who are the way I used to be. Then I see people who are the way I was before I was like that. Right after you are saved, you see people the way you used to be when you were in sin.
+
+The further you go into God, the more love you have to develop because you have to be kind.
+
+People come up with an entourage of excuses. "Did you get this job done? Are you going to make it to prayer? Are you going to do this?" And excuses come flowing out.
+
+Nobody likes to look lesser in somebody else's eyes. Many times we fabricate some kind of front just to be acceptable or bigger in people's eyes.
+
+But God has access to you. He will not treat you any other way than what you really are. We can build ourselves up in somebody's eyes, but God does not see us the way we present ourselves to people. He sees us the way we are.
+
+When I realized how thoroughly He sees me as I am, it freed something in me. It does no good for you to see me differently than He sees me, because He treats me according to what He sees.
+
+## God's Judgment Is Incapable of Being Unfair
+
+There are attributes that make God God: sovereignty, judgment, righteousness, immutability, love, eternal life, omniscience, omnipotence, and omnipresence. These are sovereign attributes of God, and He does not vary from them.
+
+Because He is absolute righteousness, He can act no other way upon a situation. Because He is absolute sovereignty, what He sovereignly establishes is established.
+
+When we think of judgment, we often think of a person getting his dues. But the judgment God is in His absoluteness is not only the bad side of judgment. It is also the good side.
+
+God is absolute judgment. He is incapable of rendering an incorrect judgment. He is incapable of being unfair to you. He is incapable of rendering an offbeat judgment concerning you.
+
+However He treats you, He is justified in it, because He is incapable of rendering a false judgment.
+
+So He only sees me the way I am. Instead of putting up fronts, I had better be about my Father's business and change the way I am if I want to draw closer to Him.
+
+All permanent change comes from within a man. Now I have the indwelling presence of the Holy Spirit, and His divine commission is to search the deep things of God with the intention of revealing them to me.
+
+The Spirit of God knows what is working in God, and He searches the deep things of God to reveal them to you. One of the major keys that starts the engine of this searching and revealing process is the mysteries you speak hour after hour in the Holy Ghost.
+
+## Carnality Keeps Believers Following Men Instead of the Spirit
+
+Paul was having trouble with the carnality of the Corinthians. He continued instructing them about communion, the moves and gifts of the Spirit, and divine order in chapters 11 through 14.
+
+In 1 Corinthians 2:6, he was being sharp when he said:
+
+> Howbeit we speak wisdom among them that are perfect...
+
+He was saying, "We speak wisdom among the mature. It is not the wisdom that comes from this world, nor from kings and princes and the way they run kingdoms. The wisdom we speak is in a mystery, the hidden wisdom. There was no access to it except by the Spirit of God."
+
+Then he turns toward the Corinthians and says, in effect, "You want to follow after men. I cannot even speak this much to you because your source is men. You have not learned the transforming power of the Holy Spirit. You have not learned how to enter into relationship with God, how to throw yourself into the river of revelation knowledge, and how to yield yourself."
+
+The Spirit searches the deep things of God. We have not received the spirit of this world, but the Spirit which is of God.
+
+Someone says, "I do not have time to pray. I have to work."
+
+I know that. But do you think any group of believers that ever received revival from God did not have the same obstacles to overcome that you do?
+
+One of the biggest deceptions is waiting for revival instead of causing it.
+
+## Paul Could Not Feed Meat to Believers Who Still Walked as Mere Men
+
+Paul continues in 1 Corinthians 3:
+
+> And I, brethren, could not speak unto you as unto spiritual, but as unto carnal, even as unto babes in Christ.
+>
+> I have fed you with milk, and not with meat...
+
+He says, "I fed you with milk when I established you and evangelized you. I wanted to know nothing among you except Jesus Christ and Him crucified. But you were not able to bear meat then, and neither are you now."
+
+Why?
+
+> For ye are yet carnal: for whereas there is among you envying, and strife, and divisions, are ye not carnal, and walk as men?
+
+The phrase means mere men. They were limited to a walk like sensual, mere men, under the dominance of strife, divisions, and heresies.
+
+Paul defines it:
+
+> For while one saith, I am of Paul; and another, I am of Apollos; are ye not carnal?
+>
+> Who then is Paul, and who is Apollos, but ministers by whom ye believed?
+
+Paul planted. Apollos watered. But who gave the increase? God gave the increase.
+
+## Ministers Plant and Water, but God Alone Gives the Increase
+
+Paul is not talking here about sowing seed into a city and somebody else watering it until somebody gets born again. He is talking in context about his source of revelation knowledge and about people following Paul and Apollos.
+
+Paul says, "I came and planted you in the Kingdom. Apollos came and taught you; he watered. But here is the part neither Paul nor Apollos can do: God gives the increase."
+
+We can teach you about the love of God while you are still walking in divisions. We can teach you about the peace that passes understanding, the kind of peace that caused an old man in prison, framed for the fires of Rome, waiting for his beheading, to say, "I have fought a good fight. I have kept the faith. I have finished my course."
+
+Paul and Apollos can teach you about peace, joy, and faith, but we cannot open you up and put it in you.
+
+Paul plants. Apollos waters. But God gives the increase by opening the river of revelation knowledge and transforming you to that hidden world of faith and peace, because the Kingdom is within.
+
+God, through the Holy Spirit, is the One who gives the increase.
+
+The increase of yourself in Jesus Christ comes from one source. It is not simply running around hearing every great teacher in the land. It is stopping and transforming to what you are hearing. It is going to the mouth of the river and throwing yourself in. It is eight hours of mysteries uttered in your spirit that increase you in God. It is going to the same source Paul went to.
+
+As long as you are following men as your source, are you not carnal?
+
+## Take Heed How You Build on the Foundation of Christ
+
+Paul says:
+
+> Now he that planteth and he that watereth are one: and every man shall receive his own reward according to his own labour.
+>
+> For we are labourers together with God: ye are God's husbandry, ye are God's building.
+
+Underline this: "Ye are God's building."
+
+Paul continues:
+
+> According to the grace of God which is given unto me, as a wise masterbuilder, I have laid the foundation, and another buildeth thereon.
+>
+> But let every man take heed how he buildeth thereupon.
+>
+> For other foundation can no man lay than that is laid, which is Jesus Christ.
+
+According to the grace, calling, and office given to him as an apostle, Paul laid the foundation. Apollos and others built on it. But Paul gives a warning: every man must take heed how he builds on that foundation.
+
+You had better go to the source of revelation knowledge and throw yourself in. You had better be careful what building you construct on the original foundation and revelation of Jesus Christ crucified in you, the hope of glory.
+
+There is no other foundation.
+
+## Defiling the Temple Means Corrupting the Foundation with False Doctrine
+
+Paul says:
+
+> Now if any man build upon this foundation gold, silver, precious stones, wood, hay, stubble;
+>
+> Every man's work shall be made manifest: for the day shall declare it, because it shall be revealed by fire...
+
+When I was in ultra-holiness, they used the phrase "ye are the temple of God" almost exclusively for drinking, smoking, and chewing. If somebody got saved and they caught him drunk, they said he was defiling the temple of God.
+
+Of course, they quoted the verse, but they did not leave it in the chapter they quoted it from.
+
+When Paul says you are the temple of God, he is talking about God's husbandry, God's building, God's house. He says, "I laid the foundation, which is the revelation of Jesus Christ. Upon this foundation you are going to build, because there is no other."
+
+Take Jesus Christ away, and there is no salvation.
+
+That is what Hebrews means when people kept trying to go back under the Law. If you have tasted of the heavenly gift and the powers of the world to come, then turn from Jesus Christ to embrace another god, there is no salvation left. Hebrews was not talking about a man beaten back by the lusts of the flesh who comes back to God. It was talking about turning from the living God, embracing another, and eradicating Jesus Christ as your foundation.
+
+When Paul talks about defiling the temple, he is not primarily talking about drinking, smoking, and chewing, though sanctification includes those things. He is talking about defiling the temple with false doctrine that eradicates the foundation of Jesus Christ. That is why God destroys.
+
+## The Refiner's Fire Will Test What We Built
+
+If you build on this foundation using gold, silver, precious stones, wood, hay, or stubble, all your works will be tried by fire.
+
+In that day, you will wish you had gone to the river.
+
+You will be rewarded according to your labor. The honor of the Lamb is beyond anything this world can compare to. If heaven's reward were run like earthly government, men would kill for it.
+
+Imagine a child of war, abortion, or starvation in heaven, one of those little ones, placing a hand in yours and saying, "I was aborted, but I was there when you were crowned on your coronation night. I want you to know I would rather have been born on earth, endured hardship, risked being lost, and taken all the chances, just to have Jesus look at me the way He looked at you because the flesh, the devil, and the world could not cancel you."
+
+You had better watch what you build on.
+
+If you follow men, they can lead you down roads of personal ambition. They can use you and sacrifice you to build great works. But if you build on the foundation with wood, hay, and stubble, the day is coming when the refiner's fire will go after your dross.
+
+The little analytical mind that excused you will seem so feeble from eternity's view.
+
+The Refiner is kind. He says, "All your failures were laid on Me." You will suffer loss, but you will be saved as by fire if you remained on the foundation of salvation. You may have denied the Holy Ghost, fought healing, or built wings of incorrect doctrine off the foundation, but all that will burn.
+
+If there are impurities in gold, heat the fire hot enough and they come out. The pureness of the gold separates from the dross every time.
+
+You can either let the Refiner work now, or you will face the words of Jesus then.
+
+Jesus said:
+
+> The word that I have spoken, the same shall judge him in the last day.
+
+You are either going to listen to Him now, or you are going to listen to Him then. But you are going to listen to Him.
+
+Here is your life. Here is what He said about it. When the two come together, what does not fit is going to burn.
+
+So tell me again: who gives the increase?

@@ -1,0 +1,474 @@
+# Equipping Your Soul for Meditation
+
+## The Holy Spirit Is the Primary Teacher of the New Covenant
+
+Why don't you go on over and stick a marker in John, at the end of the third chapter. Hallelujah.
+
+If you are going to understand meditation in your covenant, then you have to understand that your primary Teacher in this covenant is the Holy Spirit. He has come to fulfill His great commission to guide you and me into all truth, and Thy Word is truth.
+
+To truly understand meditation in your covenant, you must understand that the Holy Spirit is your primary Teacher.
+
+The pivotal point between the Old and New Testament is really Romans 7 and 8, where we are actually freed from the old unregenerated sin nature. He says:
+
+> The law of the Spirit of life in Christ Jesus hath made me free from the law of sin and death.
+
+Right there between Romans 7 and 8 was the change of covenants, from a spiritually dead man, which they were under the Old Covenant, to a born-again man who now answers to the law of the Spirit of life.
+
+Because I have been born again and received a new nature, thank God, the Holy Spirit can come and take up His abode on the inside of me.
+
+What we have now, the Old Testament saints would have killed for. They longed to see this day. The Holy Spirit was given to them, which verse we are going to read in a moment, but He was given to Jesus without measure, which indicates that to the Old Testament saint He was given in measure.
+
+That meant two things. The Holy Spirit could only come for a purpose, a plan, or a pursuit, and then He would leave. The measure in which He could come to them was in their soul only. Because they were unregenerated men, waiting for the promise of the cross, He could not take up His abode on the inside of them to become their Teacher like He has with us.
+
+They did not have a capacity to understand spiritual things as you and I do, because we have finally received His nature.
+
+Well, the pivotal point was Romans 7 and 8. For you to understand meditation under your covenant, you must understand that your primary Teacher is the Holy Spirit. He is.
+
+## Jesus Is the Firstborn From Spiritual Death, Not Merely Bodily Resurrection
+
+Let me show you something here in Colossians 1. Look at the fifteenth verse, or back up to verse 14:
+
+> In whom we have redemption through His blood, even the forgiveness of sins:
+> Who is the image of the invisible God, the firstborn of every creature:
+> For by Him were all things created, that are in heaven, and that are in earth, visible and invisible...
+
+Of course He is speaking of Jesus.
+
+> Whether they be thrones, or dominions, or principalities, or powers: all things were created by Him, and for Him:
+> And He is before all things, and by Him all things consist.
+> And He is the head of the body, the church: who is the beginning, the firstborn from the dead; that in all things He might have the preeminence.
+
+He is the firstborn from the dead.
+
+Now how could He be the firstborn from the dead when He Himself resurrected Lazarus? There is something called the JDS heresy, the "Jesus died spiritually" heresy. Some say Jesus just died, went to the lower parts of the earth, preached to those who were in prison, and brought them back to heaven with Him. But Scripture says He descended to the lower parts of the earth. As Jonah was in the belly of the whale three days and three nights, so must the Son of Man be in the heart of the earth.
+
+They call a man who believes Jesus died spiritually a JDS heretic. So it has divided the body of Christ.
+
+But I am going to tell you right now, the deity of Jesus did not die spiritually. Not the deity. But the humanity did. It would be impossible for the humanity of Jesus Christ to be a human being without also having the spirit of a human being. This is where your mind will fail to understand the separation: that Jesus could be deity and humanity, everything God is, but still have a human spirit. He does. It was that human spirit that experienced spiritual death.
+
+Let me ask you: How could He be the firstborn from the dead when Lazarus himself was resurrected from the dead? Before Lazarus, Jesus stopped a funeral and resurrected a child from the dead. Even under the Old Covenant, people were resurrected from the dead. Elisha resurrected a boy from the dead.
+
+How could Jesus call Himself the firstborn if one other human being was resurrected before Him?
+
+The firstborn was not talking about the resurrection of the body. It meant that after Jesus was made to be our sin, He entered into the state of what humanity had become. When He was resurrected from the dead, He was born again out of spiritual death. That is why it called Him the firstborn of many brethren. That had not been since Adam. He was the firstborn from the dead since Adam fell and the whole human race inherited spiritual death.
+
+So He called Him the firstborn.
+
+I am not going to go over to John now, because he says, "He that speaks the words of God, God gives not the Spirit by measure unto Him." Before Jesus was made to be our sin, He was born spiritually alive. He had to be born spiritually alive to be able to take our sin.
+
+After He took our sin, He was the firstborn of many brethren from the dead. Romans called Him the firstborn among many brethren, the firstborn of the Church. All the Old Testament saints had to wait for His resurrection because all were predestined to be conformed to His image. Before Jesus rose from the dead, there was no image to conform to. The whole human race had fallen to spiritual death.
+
+So now the firstborn was born from the dead, and finally we had an image to conform to.
+
+Before Jesus took our sin, being born of the Virgin Mary, He was spiritually alive. He who knew no sin was made to be sin for us, that because He substituted Himself in our sin, we might be made, when we accept what He has done, the righteousness of God in Christ.
+
+Hallelujah.
+
+## The Spirit Was Given in Measure Before the Cross but Abides in Us Now
+
+He says that to Him God gave the Spirit without measure. We know Jesus went out beyond Jordan, and John baptized Him. At the age of thirty, the Holy Ghost fell on Him in baptism.
+
+Why? Because He was born of the Virgin Mary spiritually alive. It was not until later, when He died on the cross and cried, "My God, why hast Thou forsaken Me?" that in His humanity He was made to be my sin, that I might be made the righteousness of God in Christ.
+
+He that speaks the words of God, to Him He gave the Spirit without measure. Then every prophet, every person moved by God in the Old Testament, received the Spirit in measure. The only measure in which He could come to them was in their soul. They did not have a nature by which they could understand Him.
+
+Not anymore. Now that you and I have been born again, the Holy Spirit is able to come and take up His abode on the inside of us.
+
+When Jesus was about to go to heaven, He told them:
+
+> The Spirit of truth; whom the world cannot receive... He dwelleth with you, and shall be in you.
+
+After you are born again and receive a nature that frees you from sin, He will be in you, and He will abide with you forever.
+
+If you are going to learn how to meditate, I am going to tell you one more time: in our covenant, your primary Teacher is the Holy Spirit. When you give yourself to meditation, you are assisting Him in your transformation.
+
+## Deception Often Begins in the Pulpit Because Believers Do Not Know Their Teacher
+
+I am going to tell you something else. Ninety-five percent of denominations, groups of believers led into error, are not led into error by themselves. You sheep usually do not do enough to fall into error.
+
+You pick your Bible up on the way to church. What do you know?
+
+"How do you know?"
+
+Because I have lived in sheep pens. And I love you. My God.
+
+You usually do not do enough to deceive yourselves. Ninety-five percent of deception did not originate with the sheep. It came from there. Absolutely, it came from the pulpit. Sheep just eat that grass. They put it out, and you just eat it.
+
+"Where do we go now? Oh, you want us to go into that? Yes, certainly."
+
+They send a couple of strong goats out. They change sheep pens on you. The grass is drier, but that is okay. That goat yelled at you, and you just ran over there.
+
+This is why James 3 says:
+
+> Be not many masters, knowing that we shall receive the greater condemnation.
+
+Masters means teachers. He that offends not in word is a perfect man, able also to bridle the whole body. Behold how great a matter a little fire kindles. How can bitter and sweet water flow from the same fountain? All that is in the same chapter.
+
+What is he talking about? Be not many teachers, because you will receive the greater condemnation if you poison people with words. That water fountain out there is the tongue, but all it is doing is delivering what is in the reservoir. If the reservoir has strychnine in it, the fountain will deliver strychnine.
+
+If a man can master his words because he has mastered what is in his heart, James is saying that man is able to bridle the whole body. If I am preaching false doctrine, I am going to receive the greater condemnation because I am going to put a bit in the body of Christ's mouth and lead it into the desert.
+
+"Guess what? I was visited by an angel. I can have seven wives. Just follow me."
+
+Pretty soon you are singing in some monstrous choir out in the middle of the desert and do not know the difference.
+
+Why do you receive the greater condemnation? Because this guy starts poisoning. He starts poisoning the body of Christ and bridles some of them. A little fire kindles a great fire. Kindling starts with just a little wood, but this guy creates a raging forest fire and poisons the fountain.
+
+People follow him in just as blind and dumb as sheep because they do not know the primary Teacher of their covenant. They do not know how to yield to Him. They do not know how He teaches.
+
+Before we get done tonight, we are going to lay it on you.
+
+James says, "How can bitter and sweet water flow from the same fountain?" He says a man will bless God tenderly--"Oh, how I love Jesus"--then curse men who are made in the similitude of God. He said these things ought not to be.
+
+How can they be? Because somebody's fountain got poisoned.
+
+How are you going to know the difference? Do you think Jim Jones went to a mental institution and got the people to follow him from a mental institution? They were white collar, blue collar, doctors, lawyers, and they followed him to Guyana. How could this be?
+
+I am going to say it again: your primary Teacher in your covenant is the Holy Spirit. His commission is to guide you into all truth. Thy Word is truth.
+
+After the preachers have preached, the exhorters have exhorted, and the teachers have taught all they are going to teach, who finally is the instructor of your wisdom? Who is going to be holding your hand when each of us takes our turn? We are going to have a turn in front of God. Who is going to hold your hand then? Do you think your wife will be there? Your husband?
+
+Who are you going to blame your deception and failure on then? I want to make a point tonight.
+
+Why did Jesus, through Paul, say things like He did in Hebrews? He says there is no need for every man to teach his neighbor to know God. Why? When they were spiritually dead, the only way they could know Him was through ordinances, instructions, and sacrifices. When they got everything just right, God would come, and they would say, "Wow, that is Him."
+
+They knew of Him. They could watch Him. But they did not know Him.
+
+But now He said you can know Him from the least to the greatest. Why? Because you have been born again. It is not every man teaching his neighbor through ordinances to know about God. You can know Him now from the least to the greatest, because He has written His nature in our hearts and His laws in our minds.
+
+I can know Him now. Before, I did not have a nature to know Him. It was absolutely impossible to know Him because I did not have a nature to know Him. But now I can know Him, and you can, from the least to the greatest, because every person can know God personally now.
+
+All I am is the instructor of your faith. I cannot replace your fellowship with Him.
+
+## Offering the Soul to the Word Joins the Spirit's Wisdom With the Mind's Meditation
+
+If you are going to understand meditation, I will say it again: your primary Teacher is the Holy Spirit. His commission is to guide you into all truth. Thy Word is truth.
+
+Hallelujah.
+
+You say, "Brother Roberson, the Holy Spirit is my Teacher?"
+
+Yes, sir, He is, as much as He is mine.
+
+I am going to tell you right now, He lives for the day that you will offer your soul on the altar of the Word of God. As He instructs your spirit with wisdom and insight and becomes your understanding, you are offering your soul on the altar of the Word. The combination of the two--Him, the instructor of my new nature, and you offering your soul, your mind, your will, and your intellect on the altar of the Word--will make you something the devil does not even know how to deal with.
+
+Instead of being a dumb little sheep just eating what I give you on Sunday.
+
+And what I give you is good, because I am not a dumb little instructor. But how do you know that? How do you know that? That is right. How do you know that?
+
+God commissioned and authorized sixty-six books and left them behind as a legacy. That is the only way you are going to know anything.
+
+## John and Paul Deserve More Than Occasional Skimming
+
+People, the Apostle John ministered on this earth approximately eighty-five years. He was a hundred when he got off the Isle of Patmos and ministered something like five more years.
+
+Besides his crowning achievement, which was the testimony of Jesus as he walked with Him now through the eyes of the Holy Spirit, that is why he was able to say so much more about what Jesus was talking about when He instructed that the Holy Spirit would come, and when He came He would guide you into all truth.
+
+John understood all that: how He is with you now, and in that day He will be in you. John ministered on the earth longer than any man alive. There was something about John, even before he was born again, that Jesus saw in him. He committed His own mother to him.
+
+I believe that is one reason he lived so long. When John moved to Ephesus, Jesus' own mother died of old age in John's house in Ephesus. Then John was banished to the Isle of Patmos by Domitian. Domitian died. In fact, he was impeached. He was one of the cruelest Roman dictators that ever lived. When they impeached him, they brought many of the prisoners back from the Turkish penal colony, which was the Isle of Patmos, just off Turkey.
+
+So they brought John back at about one hundred years old. He lived to be about one hundred and five.
+
+Besides the testimony of Jesus, let me give you his crowning achievement: 1 John, 2 John, and 3 John. Second and Third John are just a couple of paragraphs. First John is five chapters.
+
+Follow me. The wisdom, the insight God could pour into a man in eighty-five years, pertinent to the Church, God captured in five chapters. Five chapters.
+
+Show some respect. Do not tell me you skim that book and quote a couple of favorite verses in a religious conversation when it is appropriate. Come on. Eighty-five years poured into five chapters. There is something in there. Show some respect.
+
+If I were you, I would find out how to offer my soul on the altar of that book, because this is the crowning achievement of that man, and his whole life culminated in five chapters. My God, you had better read it more than once.
+
+Help me out. Come on. Eighty-five years, and it was said in five chapters. Show those five chapters some respect when you are in that book.
+
+Much less the sixty years of Paul. His crowning achievement was the foundation of the Church: Ephesians, Colossians, Romans, Hebrews. Come on. What is in there? The Holy Ghost wants to teach me. I am going to do Him the honor of offering my soul on the altar of the Word of God.
+
+"Can you teach me?"
+
+Oh yes, I can teach you. Hang on. Do not worry. The flow is pretty good.
+
+Hallelujah.
+
+## David and Joshua Show That Meditation Is a Day-and-Night Life
+
+We are going to pick it up where we left off, pass in review, and then take it to the end. Hallelujah.
+
+You must remember I only had about twenty pages before. Now I have thirty-nine. It is not so bad. I have read them several times, and I get so turned on I cannot stand it. I am thinking, "You wrote this?"
+
+Of course I did not. When I was lost in the Spirit, He was teaching me, like when I was preaching out here. I cannot repeat a message over, especially when I am flowing in the Holy Spirit.
+
+Hallelujah.
+
+Brother Tim, I want to teach you on the principles that govern the meditation of God's Word. Some of the things I am about to share, the Holy Spirit has just revealed to me in the last few months, and immediately I thought of you, my friends. Even after twenty-four years of ministry, I am still excited about what God is adding to my life.
+
+My prayer is that He will bless you as much as He has blessed me, because I can promise you, if you will do the things I am about to teach you, your walk with God will never be the same.
+
+Whenever great men talked of the principles God gave them to live by, such as David, the mighty king of Israel, and Joshua, who stepped into Moses' shoes to lead the children of Israel to the promised land, there seemed to be a statement that kept recurring in the instructions God gave them.
+
+It took me a while to catch on to what it was. But when I did, the results were so strong. Believe me, I can tell when something has changed. After twenty-four years of ministry, believe me, I can tell.
+
+That statement was to meditate the Word day and night.
+
+Notice how this statement occurs twice in God's instructions to these great men. The first place is Psalm 1:1-2:
+
+> Blessed is the man that walketh not in the counsel of the ungodly,
+> nor standeth in the way of sinners,
+> nor sitteth in the seat of the scornful.
+> But his delight is in the law of the Lord;
+> and in His law doth he meditate day and night.
+
+Day and night. Day and night.
+
+Joshua 1:8 says:
+
+> This book of the law shall not depart out of thy mouth;
+> but thou shalt meditate therein day and night,
+> that thou mayest observe to do according to all that is written therein:
+> for then thou shalt make thy way prosperous,
+> and then thou shalt have good success.
+
+When we think of a person meditating the Word day and night, we think of them studying not only for the long hours of the day but late into the night, their whole world consumed with the meditation of God's Word almost to the degree that you would think of them tucked away somewhere in a monastery. Certainly not the average person carrying out a forty-hour workweek, which makes up the greater part of the body of Christ.
+
+So I knew God was trying to get something over to me, and not only to me, but to everyone who loves the Word of God and wants to learn how to meditate to increase their wisdom and understanding in an unforgiving world of schedules and forty-hour workweeks.
+
+For a long time I thought meditation was studying or reading. Although these things assist meditation, they do not replace it, because most people cannot do these things day and night. But God's instructions to Joshua were to meditate day and night.
+
+## Born-Again People Still Have to Be Taught by the Spirit
+
+Tim, unless we understand our covenant as born-again, Holy Ghost-filled believers, we are never really going to understand meditation, because in our covenant our primary Teacher is the Holy Spirit. He is the One given to us to guide us into all truth. Where men leave off, He picks up and gives us what no man can give us.
+
+Our covenant is different from the covenant God gave to the Old Testament saints. The Old Testament saints were not born again as you and I understand being born again. It was impossible for the Holy Spirit to fulfill His ministry in them as He does in us, because their spirits were not capable of understanding light, nor did they have a new nature that made it possible for the Holy Spirit to dwell in them.
+
+This is why Jesus said what He did in John 14:16-17, when He was giving His disciples their final instructions before He was taken away from them about the Holy Spirit, who was dwelling with them but soon would be in them:
+
+> And I will pray the Father, and He shall give you another Comforter, that He may abide with you forever;
+> Even the Spirit of truth; whom the world cannot receive, because it seeth Him not, neither knoweth Him:
+> but ye know Him; for He dwelleth with you, and shall be in you.
+
+The Old Testament saints were men and women waiting for the promise of the cross to be fulfilled in them, when God would come and take away their old nature and give them a new one that freed them from sin. For thousands of years, the Old Testament saints waited, lived, died, and went to a place called Abraham's bosom, an Old Testament type of heaven, and waited.
+
+It was a very comfortable place God had provided for them while waiting out the different dispensations leading up to the cross, when God would be able to give them a new nature that once and for all freed them from sin and finally made it possible for them to leave the shadows and types of the Old Covenant behind, including the Old Testament type of heaven, Abraham's bosom, and go on to heaven itself, to be in the presence of God.
+
+Luke 16:22 briefly mentions this place:
+
+> And it came to pass, that the beggar died, and was carried by the angels into Abraham's bosom.
+
+As you know, the term Abraham's bosom was talking about everyone who embraced the promise God made to Abraham, that in his seed, which was Christ, all the nations of the earth would be blessed. Anyone who died resting in that promise waited in Abraham's bosom until the waiting period was over and the Old Testament saints could once again dwell in the presence of God. That had not been so since the fall of Adam and the spiritual death of the human race.
+
+But this is not so in our case, Tim. We were not born under the dispensation of the Old Covenant. We were born under the New. When we embraced salvation, unlike the Old Testament saints who had to wait for the change of covenants to be born again, God immediately gave us a new nature. When we die, because we have a new nature, there is no waiting period for us. We are ushered immediately into the presence of God, into heaven itself.
+
+This is why in Hebrews, when Paul was talking about the difference between our two covenants, he said:
+
+> And these all, having obtained a good report through faith, received not the promise:
+> God having provided some better thing for us, that they without us should not be made perfect.
+
+Think about our covenant, Tim. We live in the dispensation of God's redemption plan when He is able to impart the born-again experience to our spirit. In the creation of our new nature, He has so thoroughly cleansed us from our sins that we are now able to receive His Holy Spirit. So pure and guiltless have we become in the sight of God in our new natures that God is able to send the Holy Spirit, in all His holiness and pureness, to live on the inside of us, to move into our new natures and become to us what no man can give us: the Instructor of our new nature and the wisdom of our understanding.
+
+As I said, Tim, in our covenant, the Holy Spirit is our primary Teacher. Upon our invitation, He is ready to take up His ministry on the inside of us to guide us into all truth. When all the pastors have done what they are supposed to do, when all the teachers have taught what they are supposed to teach, when all the instructors have instructed and the exhorters have exhorted, He is the One who gives you what no man can give you. He is the Minister of your understanding and the Instructor of your new nature.
+
+This is why John again says in John 16:13-14:
+
+> Howbeit when He, the Spirit of truth, is come, He will guide you into all truth:
+> for He shall not speak of Himself; but whatsoever He shall hear, that shall He speak:
+> and He will shew you things to come.
+> He shall glorify Me: for He shall receive of Mine, and shall shew it unto you.
+
+Tim, many Christians do not understand the ministry of the Holy Spirit toward us as our Teacher. When we were born again, we received a new nature that could understand spiritual things. But in reality, you still have to be taught.
+
+Let me rest my case. In this city alone, two or three thousand preachers get up and share a pulpit on Sunday morning. Out of them, a thousand are probably filled with the Holy Ghost. Yet no two can get up and agree on the same verses.
+
+If we only have one Teacher, with one set of epistles and one instruction to guide us into all truth, then it is a fact that even though you received a new nature that could understand spiritual things, you have to be taught.
+
+You can rest your case on one preacher saying sickness and disease were sent by God, and another saying, "No, they were not." Another says you can pray in tongues any time you want, and another says you cannot.
+
+Where is the breakdown on the understanding of spiritual things? Is it with the Holy Spirit, or is it with us? It is with the fact that even though you received a nature that could understand spiritual things, you still must be taught as you are led.
+
+You can believe anything you want.
+
+You are still a separate individual from the Holy Spirit. He is one Person; you are another. You do not automatically know everything He knows because you suddenly received the baptism of the Holy Spirit. But now, thank God, you finally have a nature that can understand spiritual things.
+
+In the same way one person would transfer knowledge to another, the Holy Spirit must also transfer His knowledge to you through guiding and teaching. When He comes into our new nature through baptism, He comes to teach us and guide us into all truth.
+
+In much the same way you enter a classroom and the teacher teaches you what he knows by transferring his knowledge to you, the Holy Spirit must teach you. When you entered the classroom, you did not automatically know everything the teacher knew. It had to be taught to you.
+
+When you were born again, you received a new nature that can be taught, that can understand spiritual things. He removed the darkness out of your spirit and sent you the Teacher of all teachers, the Instructor of your wisdom, the Teacher of your new nature, to give you what no man can give you.
+
+## The New Nature Can Understand What the Natural Man Cannot
+
+What happened in your spirit that caused you to be able to understand spiritual things was phenomenal. It could only be compared to you not knowing one word of Japanese, yet taking a college course on the theory of relativity from a Japanese professor who spoke no English.
+
+You would not have any idea what he was talking about when you sat in his classroom, but all the Japanese students would, because they were born into that culture. In order for you to understand what the Japanese professor was talking about, being American, you would have to understand the Japanese culture. In a manner of speaking, you would almost have to be born into it.
+
+Well, Tim, the miracle of all miracles happened when you were born again. In the twinkling of an eye, in a moment of time, God did the impossible. He took all the darkness out of your spirit and made it possible for you to understand light.
+
+Colossians 1:13 says:
+
+> Who hath delivered us from the power of darkness, and hath translated us into the kingdom of His dear Son.
+
+A person who has never been born again has no more capacity to understand spiritual things than a person could understand the Japanese language having never been subjected to the language or culture before.
+
+When we were born again, we received a new nature and a capacity to understand spiritual things. When we were filled with the Holy Spirit, we received the Professor and are now able to understand spiritual things as the Holy Spirit, our Teacher, unveils the mysteries of Christ.
+
+This is why 1 Corinthians 2:14 says:
+
+> But the natural man receiveth not the things of the Spirit of God:
+> for they are foolishness unto him:
+> neither can he know them, because they are spiritually discerned.
+
+We are getting close.
+
+Here we are, Tim, born-again children of God with a nature that not only knows God but can be taught by God. But our soul, which is our mind, our will, our intellect, and our emotions, has only been trained by this world and knows no other way to operate.
+
+So in a stroke of genius, God gave our soul something it could feed on. He left behind a legacy, sixty-six books full of the thoughts of God. He saw to it that His Word, the Holy Bible, would be given to us so that everything the Holy Spirit was trying to get over to us as our Teacher, we could go to the Word of God, train it with our mind, and acknowledge it with our intellect.
+
+Here we are with the Teacher of all teachers living on the inside of us, attempting to guide us into all truth, and doing so in great hopes that we will give our soul to the meditation of God's Word. The combination of the Holy Spirit ministering insight and wisdom to your spirit, and you willingly submitting your mind to the Word of God in meditation, results in the kind of transformation that will change your life forever, put you on the immovable rock of the Word of God, transform your soul, and give you great courage and success to face life and conquer.
+
+## The Soul Transforms to Whatever It Is Given Most
+
+Tim, as we learn to offer our soul to the meditation of God's Word, never underestimate the power of the soul. There is only one thing more powerful than the operation of your soul, and that is the nature of your born-again spirit.
+
+When a person begins to subject their soul to the meditation of God's Word, they have all the power of the soul working for them and not against them.
+
+The most common mistake people make in underestimating the power of the soul is not realizing that your soul has the power to transform you to whatever you subject it to the most.
+
+Little did I know, when I followed the Holy Spirit into the principles of meditation, that He would teach me the most effective way to offer my soul on the altar of God's Word. Not with just my intellect, because even though my intellect is effective, it is only one attribute of my soul. I still have three more to go.
+
+If I am ever going to get past the limitations of trying to meditate using just one attribute of my soul, my intellect, then I am going to have to learn how to incorporate the other three: my mind, my will, and my emotions.
+
+The difference between a person offering their whole soul on the altar of God's Word as opposed to just their intellect is the difference between a person trying to learn a whole new language by comparing one word of English to one word of the language they are trying to learn, and taking a five-year-old child and dropping him off in a country that speaks another language.
+
+The child will be transformed by the language of that country within a year. It is not that he will try. He will not. But his soul has the power to assimilate the entire language within a year because he is not just using one attribute, but all the attributes of his soul: his mind, his will, his intellect, and his emotions.
+
+I thank God, Tim, for the day God taught me how to meditate His Word. Understanding that my soul has the power to transform me to whatever I subject it to the most, in the same way a child growing up can assimilate an entire language, there is a way you can subject yourself to the Word of God where you can begin to assimilate it.
+
+When you do, you are equipping the Holy Spirit with what He so desperately needs to teach you, guard you against deception, and guide you into all truth.
+
+The reason the soul of a child can assimilate an entire language in a very short time is because day after day their soul is subjected to every aspect of that culture. Because your soul is created to transform you to whatever you subject it to the most, eventually the soul of that child will reach out and absorb the entire language by automatically linking places and things with the words that identify them.
+
+It is not that he will try. He will not. It happens automatically. He will not even realize it is happening because your soul is such a powerful teacher. It will eventually serve him up the entire language for his own personal use.
+
+You are sitting on something real dangerous, and you do not even know it.
+
+## Whole Books Surround the Soul With Every Ingredient of Revelation
+
+Tim, the same way a child suddenly finds himself surrounded by every ingredient he needs to learn a new language, would it not stand to reason that if I was meditating on the book of Ephesians, I needed to surround myself with every ingredient, every thought, every verse within that book of Ephesians if I really wanted the Holy Spirit to reveal the mind of Christ in that book to me?
+
+In each book, such as Ephesians, Colossians, or Hebrews, there is a great revelation straight out of the mind of Christ captured in that epistle. Because your mind was created to assimilate things, there must be a way to approach the Word of God and give yourself over to it where you end up receiving the whole mind of God that is in each of these epistles.
+
+Please believe me when I say that there is. If you will follow me closely, you will never be the same again.
+
+Faith really only comes one way, my friend: by hearing, and hearing by the Word of God. Not your preconceived ideas, but by hearing and hearing and hearing by the Word of God.
+
+It does not matter what you think is in here. It does not matter what any human being in the world thinks is in these epistles. It makes absolutely no difference what we think.
+
+"The Word of God says it, I believe it, and that settles it" is wrong. It does not matter what you think about it. This is not a democracy. He did not ask you for your vote. This was the same before you came, and it will be the same long after you are gone. You have one shot in this life to find it.
+
+You do not trust your whole soul to anyone but the Holy Spirit. When a man wants to teach you how to meditate, listen.
+
+No, it does not matter what we think. In our victories or our defeats about money, or anybody, or anything, there is only one way faith is going to come: when you assimilate the mind and find out what He said. Then you will know what God will do about it, which spells faith.
+
+I trusted men for a long time. It cost me lots of years. Some proved trustworthy. Others took me on a path that took some time away from me that I will never get back.
+
+Hallelujah.
+
+These men gave their whole life, John and Paul. John's eighty-five years were captured in five chapters. There is a little more in there than you think.
+
+## Reading Deliberately Lets the Book's Picture Form in the Soul
+
+Not knowing how the soul works, and several people have done this to me, people would come to me asking how to meditate. I could teach them. I would tell them they needed to take a book like Ephesians or Proverbs and read all the way through it deliberately and precisely from beginning to end forty to fifty times, acknowledging the thought or content in each verse before going on to the next.
+
+If they find themselves daydreaming and skimming over several verses, they are to go back to the last verse they remember acknowledging and start over again. Not only is this important, but it will break you from not paying attention and develop your concentration. You will not do that very often. You will decide that if you are going to do this, you are going to pay attention.
+
+They look at me like, "You want me to do what?"
+
+What they do not understand is that they are doing the same thing for their mind as a person would do who wanted to learn a new language for the first time by subjecting themselves day and night to the culture of that new language.
+
+Believe me, I know how the mind works. I have fought it long enough; I ought to.
+
+Day after day, when someone from that culture walks up to you with a glass of water and says, "Agua," the Spanish word for water, your mind associates the action with the word and the water. It will not be long before that association automatically begins to appropriate the language for you.
+
+What makes you think your mind does not work the same way when you subject it to the whole book of Ephesians by reading it over and over again forty to fifty times? The outline of the book will automatically begin to appear in the part of you where meditation takes place. I can promise you it will.
+
+I was watching an artist painting a picture, and with every stroke of the brush, it became clearer what the picture was going to be. Every verse in the book of Ephesians is a stroke of the brush, a thought within itself, but always building toward the completion of the entire picture.
+
+If you subject yourself over and over again to the whole picture in the book of Ephesians by simply reading it forty to fifty times, what your mind will automatically begin to do is the same thing it did with the association between the word agua and water. It will take every verse in the entire book of Ephesians and automatically pull them together to give you the full revelation.
+
+The more consistently you read from one end of the epistle to the other, the clearer the whole revelation will become. Each verse is a thought within itself, a stroke of the brush, but it is building toward the completion of the entire picture. The way your soul is created, it is made to automatically pull these things together for you, the same way the pieces of a puzzle come together to form a picture.
+
+You do not have to work on it. It starts serving it up after a while.
+
+This is why, in these instructions, I say that before you go through a book the size of Ephesians, Colossians, Galatians, or even Hebrews and stop to do subject studies, the only thing you should stop for before you knock off forty to fifty times is if you do not understand a word in a verse.
+
+If you do not understand a word, go ahead and get your little lightning-quick computers out. Get the meaning of the word so that the next time you pass through, the stroke of that brush will be more able to fit itself into the full picture when that time comes.
+
+But do not do subject studies yet. You will go other places. Your mind will run off on this trail and that rabbit trail, and if it is not a correct trail, then it will take that much longer for your soul to correct it and pull the thing together for you.
+
+Leave the mind in you, and do not fool with it for forty to fifty times.
+
+I can read the book of Proverbs deliberately and precisely from one end to the other in two hours. Every two days, I can read the whole book by stealing away for just one hour. Every two days I can read the whole book.
+
+What they do not know is that they are equipping themselves for the day-and-night kind of meditation that will automatically begin to assimilate the mind of Christ in that book.
+
+When it does, all those verses that you did not understand, that made no sense when they stood alone, begin to open. It is the most glorious thing when this begins to happen.
+
+They come running to me and say, "I cannot believe it. I was on my twenty-first time through the book of Proverbs, or the book of Ephesians, and suddenly this verse that had absolutely no meaning to me opened up, and I understood what it meant."
+
+I have to be patient and praise them. I did not write that on the last day.
+
+Is anybody having a good time? I am so caught up in the Spirit I do not even know if you are with me or not. I am having a good time. I am drunk on this stuff.
+
+## Revelation Is Like Stepping Onto Unexplored Territory
+
+You know when that man made the imprint on the moon? Can you imagine how he felt? Nobody in history. He was it. Nobody ever broke away from this planet in our natural earth history, nobody born here except Christ.
+
+Who knows what existed before the flood? I am talking about the pre-Adamite flood, the flood that destroyed the world the first time before Adam was ever born of God.
+
+Can you imagine how he felt when he stepped and looked at his imprint and radioed back? We got to hear the words. Where were you? Can you imagine?
+
+You have to understand that the thoughts of God are in here. The thoughts of God are in your epistles. Anytime, you may uncover a thought that is virtually unexplored territory, so hidden from the carnal mind that your whole world will change, and you with it.
+
+How do you know? This did not originate here. I bless God for the day He taught me how to meditate. I bless God.
+
+Hallelujah.
+
+Tim, the deepest respect will begin to well up for the Word of God. You are going to find it says a whole lot more than you thought, usually a whole lot more than you have been told.
+
+You really are the conqueror He was talking about. You really are. I have discovered it. If you bring your soul under subjection, you really are the conqueror He was talking about.
+
+In Hebrews 11, when He talked about faith, He said, "By faith we understand the worlds were framed by the Word of God." What He was really saying is that by faith we understand those Old Testament saints, in whom He told the testimonies, framed the generations and ages they moved in. They closed the mouths of lions, quenched fires, and received their dead back to life.
+
+There is a whole lot more available to you than you could ever even imagine. You are the conqueror He was talking about.
+
+If you get hold of God, He pours Himself out through this. If you think you can get it some other way, then go on into the world and let them train you.
+
+## Paul's Prison Letter Shows the Weight of a Lifetime Poured Into an Epistle
+
+Tim, the deepest respect will begin to develop for the Word of God. You must understand that epistles like Ephesians and Philippians are the crowning achievement of men like the Apostle Paul and the culmination of fifty years of wisdom and ministry.
+
+God took fifty years of ministry and, of all the things the Apostle Paul must have said and done, condensed it down into just a few books and chapters. Paul's whole life is poured into these chapters. We need to have some respect. We are talking about the whole lifetime of a man being poured into these epistles. It deserves better than an occasional skimming or an occasional quoting for the sake of a religious conversation.
+
+You can understand Philippians 3:8 better when you find out where it was written from. The book of Philippians was written from Rome, from a prison called the Tullian Keep. Paul was shackled to a column with his hands above his head in total darkness.
+
+The Tullian Keep was part of the sewage system of Rome, and Paul was shackled waist deep in human waste. When he said in this verse that he had suffered the loss of all things and counted them but dung, the word for dung in that particular verse referred to the human waste he was standing in while shackled for several months in this condition.
+
+But because Paul was a Roman citizen, he could receive and answer mail. By law, they had to bring him a candle, unshackle his hands, and let him answer mail. From this condition, Paul received the courier from the Philippian church and responded by writing what you and I have come to know as the book of Philippians.
+
+I wanted to cry when Paul, under these conditions, made an incredible statement to the Philippians in chapter 2:14-15:
+
+> Do all things without murmurings and disputings:
+> That ye may be blameless and harmless, the sons of God, without rebuke,
+> in the midst of a crooked and perverse nation,
+> among whom ye shine as lights in the world.
+
+It was in this condition that he received the courier from the Philippian church. They unshackled his hands and brought him a candle. He wrote the book of Philippians, and he said, "Let all things be done without disputing and complaining."
+
+So what did somebody do? Say something a little cross to you and cause you to run out of church? What was it, the color of the carpet?
+
+With the deepest respect for the Word of God, may your life be filled with meditation. Prosper and be in health even as your soul prospers.
+
+Be your friend.
+
+Eighty-five years. John culminated everything God wanted us to know from his life in five chapters. The first twenty or thirty times, that book of John could irritate you, because anything in you that does not have love will get really irritated.
+
+Hallelujah.
+
+Why don't we stand and worship God a little while?

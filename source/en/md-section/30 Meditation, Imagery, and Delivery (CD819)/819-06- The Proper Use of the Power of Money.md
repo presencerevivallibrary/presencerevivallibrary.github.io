@@ -1,0 +1,363 @@
+# The Proper Use of the Power of Money
+
+## Meditation Receives Counsel from the Word Instead of the World
+
+As you are being seated, go ahead and open to Luke chapter 16. We are going to pass in review briefly where we left off last night, and then we are going to take these laws of meditation one step further.
+
+We began our message last night from Psalm 1:1:
+
+> Blessed is the man that walketh not in the counsel of the ungodly, nor standeth in the way of sinners.
+
+We found out what qualifies us to be a blessed man or woman of God. Number one, we do not take our counsel from the world. Number two, we do not do things the way sinners do.
+
+If we are not going to receive our counsel from the world, then we must take this one step further, which is verse 2. That blessed man's delight is in the Word of God, and in it does he meditate day and night. But his reason for meditation is to extract the counsel he is to walk by, so he does not have to walk according to the counsel of the world, nor do things the way the world does.
+
+Then we went on to 1 Corinthians 14, and we found out one major role the Holy Spirit plays in our meditations. When we pray in the Spirit, we are edified, because we are actually speaking divine secrets, mysteries, and the understanding of the revelation knowledge contained within this Word. We are speaking it up before God. We are speaking it into existence. We are speaking the understanding of it into existence within our spirit.
+
+There is a way the Holy Spirit can actually bring you to that place through meditation where the Word becomes a reality, where the words are filled with power. There is such a place.
+
+I have patterned my teaching and my studying after the Master Teacher Himself, Jesus Christ. We found out something about Jesus: He always taught in total and entire subjects. Always. He never went on to the next subject until He finished the one He was on.
+
+It is us who take His messages apart. It is us who lift verses out of context. When we do, we kill faith; we do not create it.
+
+If Jesus were teaching on this pulpit and flower arrangement, He would begin at the top through the mastery of words. By the time He reached the bottom of the picture, He would have painted on this pulpit a perfect picture in your spirit. Every scripture would be a thought within itself, every verse a stroke of the brush, but invariably it would be toward the completion of the entire image.
+
+God forbid that we ever take a verse out of context again. Amen.
+
+## Luke 16:9 Must Be Broken by the Whole Picture Jesus Painted
+
+I have chosen, as far as I am concerned, one of the hardest chapters and one of the hardest verses in the entire Word of God to break tonight. The reason I have chosen it is because more than the revelation itself that you are going to receive, we want to study the method of extracting the revelation. We are studying the methods of meditation, the laws of meditation.
+
+So even more than the revelation itself, we are studying the method of extracting the revelation. That is why we will be taking it a little differently than most messages.
+
+How many want to learn how to meditate?
+
+The verse we are going to break tonight is the ninth verse of the sixteenth chapter. When we begin, it will be with verse 1, but we are breaking the ninth verse. Look at that one briefly with me, and I will tell you why.
+
+> And I say unto you, Make to yourselves friends of the mammon of unrighteousness; that, when ye fail, they may receive you into everlasting habitations.
+
+Now tell me, is that a verse, or is that a verse?
+
+I asked them that seemed to be somewhat among them what that verse meant, and do you know I had not one taker? Not one taker. Most of them were honest.
+
+You think I did not get my Greek interlinear, my outer linear, my exterior, my interior, my Wuest, my Weak, and my Strong's out and dissect that verse? I did. I took it apart, put it back together, and to my horror, shock, and amazement, it said the same thing in the Greek.
+
+Where do you go from there? Your ace in the hole is gone. I had to resort to something we do not do too often: prayer and meditation.
+
+Just examine this verse for a moment. "And I say unto you." I said, "Lord, these are instructions to me, so surely I want to do them."
+
+"Make to yourselves friends of the mammon of unrighteousness." Mammon of unrighteousness means mammon pertaining to temporary wealth. When He said, "Make to yourselves friends," I understood Him to be saying, "Using the power that is in money or temporary wealth, make friends to yourself."
+
+Then, if that was not sacrilegious enough, it went on to say, "that, when ye fail..." As a faith man, I had already struck failure out of my vocabulary. I had gotten hold of one of those lists by Don Gossett: "Never again will I confess lack. Never again will I confess sickness and disease. Never again will I confess poverty." Why? Because He has delivered me. And then it gives you what to confess. It is a tremendous list. "Never again will I confess failure."
+
+So here it says I am supposed to make friends to myself by using money, so that when I fail. I said, "I am not failing. I am not failing. Much less am I making some friend with money against the day I do fail, so that this friend, upon my failure, will receive me into an everlasting habitation."
+
+I said, "God, if the rest of it did not make any sense, that one does not."
+
+Do you know what He said to me? I bet you can guess.
+
+"Roberson, when are you going to quit taking that verse out of context?"
+
+Of course, my favorite answer at that time was, "What? How about now?"
+
+So I started meditating. Just for your general knowledge, I meditated from verse 1 clear through to the eleventh verse of the seventeenth chapter, because that is where He changed His subject. Every verse between all of that is relevant to every other verse. Luke 17:11 is where He changed the subject. All the verses are relevant. They are strokes of the brush. There is one picture. It is the picture we have missed.
+
+If you and I are going to understand this ninth verse, then we have to at least back up to the first verse. Let us begin a study on how to break the ninth verse.
+
+Are you ready? Boy, am I excited. Glory to God. Drunk on the new wine already. I feel the presence of my Teacher. Hallelujah.
+
+## The Word "Also" Shows Jesus Is Still Teaching Stewardship
+
+Luke 16:1:
+
+> And he said also unto his disciples...
+
+You do not mind if I stop periodically. When I do, I will say, "Stop." It will be on a word I want to explain.
+
+Now, what does the word "also" mean? "And he said also." Also.
+
+If I said, "I ran twenty-seven miles a day, for I have also entered the marathon," it would not do me any good to enter the marathon if I did not run the twenty-seven miles a day. The word "also" ties two events together in conjunction.
+
+He is still talking about stewardship as He continues into the sixteenth chapter. That is why He says He spoke also, in conjunction with what He had been teaching His disciples about stewardship. That one word "also" carries a whole history within itself. Remember that in your meditations.
+
+> And he said also unto his disciples, There was a certain rich man, which had a steward; and the same was accused unto him that he had wasted his goods.
+>
+> And he called him, and said unto him, How is it that I hear this of thee? give an account of thy stewardship; for thou mayest be no longer steward.
+>
+> Then the steward said within himself, What shall I do? for my lord taketh away from me the stewardship: I cannot dig; to beg I am ashamed.
+>
+> I am resolved what to do, that, when I am put out of the stewardship, they may receive me into their houses.
+
+Stop briefly for a moment.
+
+When the Lord is teaching me how to meditate, I read the entire teaching up to the eleventh verse of the seventeenth chapter fifty times without trying to get anything out of it. I am waiting for the Spirit to form an outline in me, so that any time I run into a difficult verse, the whole outline is in my spirit and will add itself to the individual meaning of that verse. I am making the job of the Spirit so much easier. Each verse is that stroke of the brush.
+
+When I began to meditate on this, in my own spirit I put this rich man behind a judgment bar because he was passing a judgment. In my spirit, I could see him behind his wealthy desk where he paid his bills and administered his affairs. I could see this unjust steward standing in front of him, shoulders slumped, eyes looking down. He did not want to look the rich man in the eye.
+
+The rich man was saying to this frail man, "How is this that I hear of you? You had better give an account of your stewardship, accounts payable and accounts receivable, for I am terminating your stewardship. You have been wasting my goods. When your account is in, you may no longer be steward."
+
+It was harsh. The words of Jesus painted enough of a picture within my spirit that I could actually see it taking place. The Spirit actually brought me there. I am not preaching to you some mental ascent that I read somewhere. I am preaching to you something that I stood there and watched take place in my spirit. That is why I understand it. This is the power of meditation.
+
+The steward and his stewardship were put on the line. I saw him in turmoil. I could see his face in anguish. I could see the thoughts in his spirit, because he revealed them: "What shall I do? What can I do? I cannot beg. I am ashamed. I cannot dig. What can I do?"
+
+I saw him pacing back and forth on the floor, wringing his hands. He was placed in a dilemma. "What do I do?" His stewardship was going to be terminated.
+
+Why do I keep saying he was frail? Because just one of those verses gave me the description of the whole man. I picked it up in my spirit. He said, "I cannot dig," and he was right. He could not dig, because all he had ever done was administrate over the house of a rich man. All he had ever done was push a pencil. Digging on the workforce in that day was from daylight until dark. You had to be born into the labor force, or you almost could not survive it.
+
+He said, "I cannot dig," because he was a frail little man. And he said, "To beg, I am ashamed." He was caught.
+
+How would you like to have a prestigious job as the aide of the mayor? You made all the checks out. You personally interviewed all the people who were to see him. Everybody knew the esteemed position you held. Then the next day you are on the street corner pushing pencils.
+
+He said, "I cannot beg. I am too ashamed."
+
+The entire outline, the man's disposition, his personality, I saw it all.
+
+## The Unjust Steward Used the Power of Attorney to Secure His Future
+
+Then, all of a sudden, while he was pacing back and forth, saying, "What do I do? What do I do?" he became resolved. His problem became solved in him. He said, "I am resolved what to do." He got this idea, and I saw the idea.
+
+What interested me so much about the idea was this: how many times have you ever been facing something like that? The termination of a job? Anyway, that is beside the point. He was resolved. His answer came to him.
+
+Oh, and it thrilled me, because he called all of his lord's debtors to him. All of his lord's debtors. Look at the fourth verse:
+
+> I am resolved what to do, that, when I am put out of the stewardship, they may receive me into their houses.
+
+Notice this:
+
+> So he called every one of his lord's debtors unto him, and said unto the first, How much owest thou unto my lord?
+>
+> And he said, An hundred measures of oil. And he said unto him, Take thy bill, and sit down quickly, and write fifty.
+>
+> Then said he to another, And how much owest thou? And he said, An hundred measures of wheat. And he said unto him, Take thy bill, and write fourscore.
+
+Whenever I heard a preacher who was brave enough to preach on this, I always considered that he only did that to two of the lord's debtors: the oil and the wheat. But did you notice He said he called all of the lord's debtors to him?
+
+So whatever he did to the first two, he did to every single man who owed his lord anything.
+
+As I sat there and meditated on this, he called the first debtor and said, "How much do you owe my lord?"
+
+He said, "A hundred measures of oil."
+
+He said, "Give me your bill."
+
+This is when it dawned on me that the unjust steward took the power of attorney in the name of his rich man and canceled a portion of that man's debt against the rich man. The unjust steward had the power of attorney.
+
+When Jesus unfolds this parable, and let us race ahead a little bit, He is talking about the same power of attorney that you and I have in the name of Jesus to be stewards on this earth. Hallelujah.
+
+He told the second one, "How much do you owe my lord?"
+
+"A hundred measures of wheat."
+
+He said, "Sit down quickly." He used the same power of attorney and said, "Write quickly, fourscore."
+
+When his lord found out these things, he commended the unjust steward because he had done wisely.
+
+This is the part I used to get stuck on. I said, "God, the man cheated, lied, and stole, and he got commended. I am going to skip this whole chapter and go to Luke 17 and move the tree into the ocean again. At least we understand that."
+
+Why did He commend this man? Why did he get commended?
+
+Look at verse 8 very closely:
+
+> And the lord commended the unjust steward, because he had done wisely.
+
+Then notice He makes a distinction between the children of darkness and the children of light:
+
+> For the children of this world are in their generation wiser than the children of light.
+
+That unjust steward was unjust, all right. He did cheat, lie, and steal. But notice Jesus called him a child of darkness and made a distinction between that child of darkness and us, the children of light.
+
+What irritated me so badly was what He used to make the distinction. He commended him and said, "The children of this world are wiser in their generation than the children of light."
+
+I said, "God, that is an indictment against my faith. You made a distinction between me and that child because You called him wiser than me when it comes to handling the power that is in money. That is an indictment against my faith."
+
+The reason it is an indictment is because Corinthians says that of God, Jesus Christ has been made unto me wisdom, sanctification, redemption, and righteousness. If Jesus Christ has been made unto me the wisdom of God, then how in the world can the children of darkness be wiser than me, a child of light? How can they be?
+
+It is sad, but in most cases it is true. When it comes to handling the power that is in money, the reason He called him wise was because that steward had enough sense to use the power of attorney and the wealth to cancel those men's debts and ensure a final dwelling place when his stewardship was terminated.
+
+He called him wise because he had enough sense to use the power that was in money to ensure a final dwelling place when his stewardship was terminated.
+
+When television first came out, we ultra-holiness people called them one-eyed monsters, one-eyed devils. We would not have them in our houses. Yet television is one of the greatest devices God has ever given as a tool of evangelism. What happened? It took the Holy Ghost thirty years to knock some sense into us wiser ones.
+
+In verse 8, the Lord commended that unjust steward because he had done wisely. The children of this world are in their generation wiser than the children of light. That was an indictment against my faith.
+
+## Jesus Became Wisdom So We Could Answer Every Condemnation
+
+I began seeking God on this. In my meditations, when I get to a verse that I do not think I have the fullness of understanding on, at least not enough to produce faith, I said, "Lord, that is an indictment, for Jesus Christ has been made unto me wisdom."
+
+Before we take it any further, let us look briefly at the degree to which He has been made unto me wisdom.
+
+If He has been made unto me wisdom, which He has, because the Word cannot lie, then He has also been made sanctification, redemption, and righteousness. I know righteousness is an existing force.
+
+I will never forget when I realized by revelation that I had a breastplate. Even as my shield of faith was beaten off my arm, I could stick my chest out and the breastplate would hold the darts off until I got my feet back on the rock, stood up again, and started fighting. The devil cannot take my salvation.
+
+When I realized that, I thought, "My God, how can I lose? Ultimately, in the end, I win anyway. So how can I really lose? Give up, devil."
+
+He will not give up. He does not know how. He will be refined one of these days, and it will be over. Meanwhile, I am going to make it miserable on him.
+
+I said, "Lord, righteousness is an existing force, and it is. But in the same verse, You said He has also been made wisdom. Is wisdom an existing force?"
+
+Yes, it is.
+
+I am here to tell you, there is no wrong decision you have ever made, and there is no mistake you have ever blundered into in your business, where wisdom did not cry in the chief places of concourse and wave red flags in front of you as an existing force, saying, "I have your answer. I have your answer. I have your answer." But we are too busy to walk with Him. We would rather walk in what we have been trained in for ten, twenty, thirty, or forty years.
+
+Listen to me. With the ever-changing times, there is only One who is ahead of them. His name is Jesus. The wisdom He has been made to you is more available than the problem that is taking your victory.
+
+There was never once that I went down in an array of trials when wisdom did not wave her red flags in front of me and give me a way out or a way around before I ever went in.
+
+As far as wisdom goes, I said, "God, I understand substitution and identification truth probably as well as anyone. I understand that He was made to be sin, that I might be made the righteousness of God in Christ. He was made my sin; I was made His righteousness. That is substitution, so that I might identify. Surely He bore my sicknesses and carried my pains. He was penalized with my disease, and I identify with His health. The chastisement of my peace was on Him by punishment, and I identify with joy and great peace. I understand substitution and identification. He went to hell for me; I go to heaven. I understand substitution and identification."
+
+So in my spirit, while praying and meditating for great lengths of time, I said, "Lord, I have always been a stickler for the Word."
+
+I can remember when healing was settled in my spirit. I drew a line and said, "Devil, I found that He bore my sicknesses and carried my pains, and I have found out that I do not have to have it. I found out that it is not His will for me to have it, that it would be a miscarriage of justice for Him to ever ask me to carry a disease for any redemptive purpose."
+
+"But my friends will get saved over it."
+
+No, they will not. Try it. He did not make you sick to save your friends.
+
+When I found it out, I drew a line and said, "Come on. You have harassed me so long. I had stomach trouble. I had back trouble. You have harassed me so long. I am mad. Cross over. Come on. You will feel the edge of this two-edged sword. I am learning how to cross over."
+
+All I had to know was that He said it, and I was it. That is all I had to know. You will find my feet on the rock when hell freezes over. That is all I need.
+
+I said, "Lord, You mean this kind of wisdom is made available to Your children? Show me what Jesus became. Show me."
+
+I found it in the most interesting place in the entire Word of God, the most redemptive chapter. Open to Isaiah 53.
+
+Hallelujah. Isaiah 53. Let us begin with the fourth verse. He has been made unto me wisdom.
+
+> Surely he hath borne our griefs, and carried our sorrows: yet we did esteem him stricken, smitten of God, and afflicted.
+>
+> But he was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed.
+>
+> All we like sheep have gone astray; we have turned every one to his own way; and the Lord hath laid on him the iniquity of us all.
+>
+> He was oppressed, and he was afflicted, yet he opened not his mouth: he is brought as a lamb to the slaughter, and as a sheep before her shearers is dumb, so he openeth not his mouth.
+
+Stop.
+
+In this trial, in fact, in the greatest trial in the universe, Jesus was standing in trial for becoming your sin and consenting to be crucified in your place. He was actually being tried in your place. It was the greatest trial in the entire universe.
+
+Yet as Jesus stood there being accused by Pilate, He opened not His mouth. As a sheep before her shearers is silent, He opened not His mouth.
+
+I went to them that seemed to be somewhat among them, and I said, "In the trial of Jesus, why did He not open His mouth? Why did He not defend Himself?"
+
+They all had different answers. Most of them went something like this: "There was so much power in His words that if He had opened His mouth and defended Himself, He would have been delivered."
+
+I thought, "That is pretty good." But I am sure Jesus had made up His mind by then. He knew what He was doing. That was the whole case in the Garden of Gethsemane when He cried, "Father, if it be possible, let this cup pass from Me. Nevertheless, not My will, but Your will be done." In perfect submission He yielded, yet He opened not His mouth.
+
+I kept meditating. Here He was, standing there taking your place in being judged and tried for your guilt, yet He gave absolutely no defense on His behalf. Why?
+
+Here stood Jesus. Contained within Him was the answer for every question you have not even thought to ask. Contained within Him was a wisdom that the worlds were created by. He was in the world, and the world was made by Him, and it knew Him not. He knew the molecular structure of the cross He was crucified on. Yet when He stood in your place in trial, being judged for your guilt, He opened not His mouth as my perfect Substitute.
+
+Why? So that when Satan tries and condemns me for something Jesus was tried and condemned for, I have access to the wisdom He refused to give.
+
+In substitution and identification, He opened not His mouth in His own defense, that I, Dave Roberson, may open my mouth and give the wisdom He would not give in my own defense when Satan is judging and trying me for something He was judged and tried for already.
+
+And that includes poverty. Hallelujah!
+
+## The Ninth Verse Turns the Parable into Instructions for the Children of Light
+
+Let us go back over to Luke 16, because I will tell you one thing: Jesus would not call the children of darkness wiser than us without going on in minute detail and showing you and me what we can do to become wiser than the children of darkness. That is all contained within the ninth verse.
+
+Get excited, Roberson. Thank you. I do not need your permission, you know.
+
+Just before we get into verse 9, let me summarize. Verses 1 through 8 painted one distinct image. This distinct image was designed to break the revelation knowledge that was in the ninth verse. Meditation drew that out and gave me the understanding of verse 9.
+
+Verse 8 was a summary. Verse 9 contained the revelation. Verses 1 through 8 painted the image and picture I needed to break the revelation that was in verse 9.
+
+Explain yourself.
+
+What is a parable again? What is a certain teaching? A parable is something I can identify with my natural mind, but it illustrates a spiritual application. The spiritual application for you and me to use in the kingdom of God right now is in the ninth verse. Verses 1 through 8 are the certain teaching He gave to cause you to understand the revelation in the ninth verse.
+
+These are the laws of meditation. Are you liking it? Oh, let us go on. Let us get it.
+
+Verse 8 again:
+
+> And the lord commended the unjust steward, because he had done wisely: for the children of this world are in their generation wiser than the children of light.
+
+But notice verse 9. All of a sudden He switches to you and me, the children of light, and says:
+
+> And I say unto you...
+
+In other words, here come the instructions that are going to make us wiser than the children of darkness.
+
+> Make to yourselves friends of the mammon of unrighteousness; that, when ye fail, they may receive you into everlasting habitations.
+
+Here are the instructions that make us wiser than the children of darkness. It took me five years. Of course, a whole lot of that time was learning how to meditate, and then after that, learning to break that verse.
+
+You do not mind if I use an analogy here? This gets quite detailed.
+
+I need a rich man. I need a rich man, and we will see you at the offering. Come on, rich man. You get up on the top step. Come on, debtor. You get up on the second step. Of course, I am the steward.
+
+Now we can see this vividly. You may not have developed imagery as much, so I will put one before you.
+
+You can see this rich man. He said the rich man had a steward, and the same was accused of wasting his goods. So he called me on trial and said, "Give an account of accounts payable and receivable, for you cannot be steward anymore."
+
+So I, of course, went home and solved my problem. Immediately I went to one of the rich man's debtors and said, "How much do you owe the rich man?"
+
+She says, "A hundred measures of oil."
+
+So I said, "Give me your bill." She gave me the bill, and through the power of attorney I marked fifty off, canceled her debt against the rich man, and handed it back to her.
+
+Jesus calls this man wise because he used the power that was in money to serve his final end. The unjust steward knew that when the rich man fired him, because he had canceled her debt, she would receive him into her house and keep him. So He called him wise for that reason.
+
+But now Jesus said that to pull it over into the spiritual:
+
+> And I say unto you...
+
+You are now the steward on this earth because you are using money. I suddenly become the steward of God. He says, "I say unto you, Dave Roberson, the steward of God, make to yourself friends by using the power that is in money."
+
+Now, how in the world can we do this?
+
+The rich man is God. The person who is in debt to God is the person who was sold out to slavery, bondage, and indebtedness to God by the original sin question. The world was placed in debt against God through Adam's original fall.
+
+So now we have an unborn-again person who is in debt to God, and we have a steward who has money and has the power of attorney in the name of the rich man.
+
+He says, "I say unto you, make friends to yourself."
+
+How do I make a friend to myself out of her? By canceling her debt against the rich man through the proper use of the power that is in money. In other words, I evangelize her until I get her converted by using money, and she becomes my friend because I canceled her debt against God when she got born again.
+
+This gets interesting.
+
+He went on to say, "that, when ye fail." The Greek passage is talking about you and the use of temporary money failing. In other words, when this phase of redemption is over, when your life is terminated, when your ministry and money come to an end, when you fail, at the end of your life. That word "fail" there is talking as much about money as it is about your life. It is talking about your whole ministry coming to an end at the end of your stewardship.
+
+> ...they may receive you into everlasting habitations.
+
+Who are "they"? "They" are the people whose debt, the sin question, I canceled by the proper use of money.
+
+What I actually did was lay her up in heaven as treasure to my account, and every person who is born again by my proper use of the power that is in money is going to be waiting for me to walk into heaven and receive me into that everlasting habitation.
+
+I have heard verses like that: all of it will be fruit to your account, and you cannot give a cup of cold water in the name of a prophet, a good man, or a righteous man without getting his reward.
+
+In essence, this would go something like this. I come through here and you folks give me seven thousand dollars. Immediately I take the seven thousand and set up a crusade in Africa. Then all of a sudden, both your departure and my departure come. We go home. Our stewardship fails; it is over. We go home.
+
+All of a sudden, fifty thousand Africans are waiting by the gate because they heard you were coming and wanted to meet you. They come running up to you and say, "Oh, sister, brother, so-and-so, we came to welcome you into an eternal habitation. We came to receive you. We are so thankful, because we are all born again because of you. Our debts against God were canceled because of you."
+
+You will say, "I never evangelized you. I never preached a lick. I never have in my whole life."
+
+"Yes, but do you remember when Roberson came through? Do you remember that? You gave of yourself. You gave the power that is in money. He went and used it to cancel people's debts against God. We have been waiting for you to receive you into an eternal habitation, because we are all up here because of you."
+
+I am a spiritual hog. I think some of you are starting to realize that now. Day by day, I am growing in His Spirit. I can outslop the best of them all, but day by day I am growing in the Holy Ghost. Each day my faith is conquering more and more, and each day I am able to invest more and more into the kingdom.
+
+I do not want five people meeting me. For God's sake, I would like to have been there when Kathryn Kuhlman walked in.
+
+What do you do as a spiritual hog? This is where I am heading. This is the way my faith is working.
+
+"You guys believing for a new building?"
+
+"Yeah."
+
+"Well, glory to God. Why don't you throw this one away and build one that will seat fifty thousand?"
+
+"How much would that cost you?"
+
+"Oh, twenty-two million."
+
+"Piece of cake. Here you are."
+
+Why? Because I am a spiritual hog. I hogged it from all of you, because I know that as long as the foundation of that fifty-thousand-seat building stands, every person born again and filled with the Holy Ghost in that building is going to be waiting for Dave Roberson to walk in to receive him into an eternal habitation.
+
+You may not be able to tell who is sneaking dollars in here, but you will there. You cannot tell the dollar sneakers here, but you will tell them there.
+
+Does that sound like a spiritual hog? Yes.
+
+For I say unto you, make friends to yourselves. Make them your brethren by canceling their debts against the rich man, God, by using the power of attorney in the name of Jesus to incorporate the money that cancels their debt. Every person born again will receive me into that everlasting habitation.

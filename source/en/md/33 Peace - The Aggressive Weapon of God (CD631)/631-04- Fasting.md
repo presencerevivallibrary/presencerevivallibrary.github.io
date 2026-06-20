@@ -1,0 +1,365 @@
+# Fasting
+
+In a moment we are going to pray and pass in review, but first a bit more preparation.
+
+If you never do anything with what we preach this week, nothing, and all you did was come and warm a chair on Sundays and Wednesdays and remain quite indifferent to the multitudes going to hell, your salvation is sure. It is not by your works, lest any man should boast. It was unearnable, unmeritable, and you certainly did not deserve His grace. Yet because of His blood, you have what you could not earn: His righteousness.
+
+You are going to heaven, my friend, if you are born again. But the question is, what are you taking with you?
+
+He says every man's work will be tried, for that day shall try it to see what manner it is. It will be tried by fire, a purger's, refiner's fire, the kind that burns dross and brings it to the top so you can scoop it off and leave what is pure.
+
+One day we will stand before Jesus, and that day shall declare it. If anything you have wrought abides after the trial by fire, anything not built on wood, hay, and stubble, but on gold, silver, and precious stones, then you will be rewarded according to what is left and not punished for what was burned. Your failures have all been laid upon the Lord Jesus Christ. You will not be punished. He said you will be saved, yet so as by fire.
+
+If you have no reward, your works will be burned, and you yourself will be saved. That is why He went on to say in that chapter, "You are the temple of God, which temple you are, and if any man defile this temple, him shall God destroy." He was not talking about you drinking, smoking, and chewing, and saying, "This is His temple, and you defiled it, so buddy, you are dead."
+
+He was talking about you being one of those lively stones in the building of God. If you falsely build that building through false doctrine or cross motivation, then your works will be destroyed. If you defile His temple, your works will be destroyed, but you yourself will be saved.
+
+So we enter in tonight. You will not be any worse off if you never do anything with what we have been preaching this week. Some of you are looking my way with uncertainty, thinking, "If I leave, will I be safe?" We probably should go beyond prayer. We probably should go into intercession. Do not let me scare you.
+
+Matthew 17, beginning with verse 14. We are going to take this one step further into peace. We are talking about walking all the way into peace.
+
+Once again, if you had asked me, "Brother Roberson, are you walking in peace?" I would have said, "Does a dog in Oklahoma have fleas? I am a faith man. What do you mean, am I walking in peace?" That is because I did not have now to compare then to.
+
+After sixteen years of ministry, I entered into God and sought everything. Somewhere along the line He diverted me and said, "As you love one another, My love is perfected in you." He began to sharpen, hone, and reveal the love of God to me. Then He brought me into a room of peace. When I was supposed to be possibly burning out, I never knew a place like this in Christ Jesus could exist.
+
+I am telling you, I never knew God could talk so much. All I have to do is enter that room, and He starts talking. I go through verses, and I never knew His voice was so loud. It is the most tremendous place I have ever been, and I would not trade it for anything.
+
+Tonight we are going to take another step out of every damnable thing Jesus said you are free from. One more step into peace, just because you want to.
+
+Jesus had been up on what we call the Mount of Transfiguration. He left nine of His disciples at the foot of the mountain and took James, Peter, and John with Him. Moses and Elijah appeared to Him. James, Peter, and John saw Jesus' face shine as white as the sun, and His clothing become white as light. They got beside themselves. After it was over, Jesus charged them to tell no man. Then He came down off the mountain to where the nine disciples had been left.
+
+Evidently there was the father of a demon-possessed boy there. There is nothing that gets to the heart of a father faster. The father had heard of the fame of Jesus and that His disciples cast out devils. So he came to the nine. When he met Jesus, he threw himself down and said, "I besought Your disciples, and they could not cure my boy."
+
+They had tried so long to cure him that they had started drawing quite a crowd. A multitude was beginning to gather around them because they were putting on such a show.
+
+This is what Jesus walked into:
+
+> And when they were come to the multitude, there came to him a certain man, kneeling down to him, and saying,
+>
+> Lord, have mercy on my son: for he is lunatick, and sore vexed...
+>
+> And I brought him to thy disciples, and they could not cure him.
+>
+> Then Jesus answered and said, O faithless and perverse generation, how long shall I be with you? how long shall I suffer you? bring him hither to me.
+>
+> And Jesus rebuked the devil; and he departed out of him: and the child was cured from that very hour.
+>
+> Then came the disciples to Jesus apart, and said, Why could not we cast him out?
+>
+> And Jesus said unto them, Because of your unbelief...
+
+Then He said:
+
+> If ye have faith as a grain of mustard seed, ye shall say unto this mountain, Remove hence to yonder place; and it shall remove; and nothing shall be impossible unto you.
+
+What are we going to do with a verse like that? Continue to sit in religious circles and admire it? What are we going to do with verses like, "The works that I do shall ye do also, and greater works than these," and, "What things soever ye desire, when ye pray, believe that ye receive them, and ye shall have them"?
+
+I have admired verses like that as long as I can remember, but to be frank, these verses were never very close to me. They were something shifted over into a kind of no man's land. You can admire them and preach them, and they cause the hair to stand up on the back of your neck, but when it comes to reality, hardly anybody can claim them.
+
+Yet He has the audacity to say, "Nothing shall be impossible unto you." This was not written only for the twelve apostles, the first century, the fourth, the fifth, the twelfth, the sixteenth, the eighteenth, or the nineteenth. These verses were written for any child of God anywhere who reads them.
+
+As I entered this room of peace and became saturated by the Lord Jesus Christ, some of the first realities that hit me when He began to bathe me in His love were these: in Him, not in religion, but in Him, for the first time in my life I began to sense, even though it was a little far away, a reality moving toward me. I saw the possibility of that verse: "Nothing shall be impossible unto you."
+
+Nothing.
+
+When He started opening this up, I would have done exactly the same thing the disciples did. Do you think that if Jesus had yelled over the head of a crowd, "You perverse and backwards generation! How long am I going to have to cast devils out for you?" I would have yelled back over the crowd, "Well, why could I not cast it out?"
+
+He would have yelled back, "Roberson, because of your unbelief."
+
+I would have done the same as they did. I would have pulled Him aside privately, because He had a way of answering your question. You ask publicly; He answers publicly. You ask privately; He answers privately.
+
+They wanted to know privately because after He called them backwards and perverse, they wanted to keep it between them and Him, especially if they were His mighty staff who had just failed.
+
+He said, "Because of your unbelief."
+
+My God, something went off inside me. The Holy Ghost started revelating in my spirit. I knew that if I could ever isolate and identify this particular kind of unbelief and eradicate it, I would become one of those to whom He said, "Absolutely nothing shall be impossible to you."
+
+Do you think I pulled that chapter out, pitched a tent, drove my stakes, and started camping? I wanted to find out what kind of unbelief He was talking about. It must be some super kind of unbelief, the most subtle, deceptive kind of unbelief that ever lived, because the opposite of it is that nothing shall be impossible to him who believes.
+
+If I ever isolate that particular kind of unbelief, I will bet I would be looking right in the face of Satan himself.
+
+As He began to open this up, I realized it must be one of the subtlest kinds of unbelief imaginable to mankind, the kind religion lives in. It is a kind a person does not even know he has, because we have consented to accept things the way they are and not bring the change He could bring with such impossible verses as, "Nothing shall be impossible to you."
+
+If you had asked me whether a man could pastor a church of seven hundred thousand, I would have said no. But Yonggi Cho said yes.
+
+It must be the subtlest kind, the kind a person does not even know he has. Why would the disciples ask, "Why could we not cast him out?" if they knew why? They asked because they did not know. Do you think they did not turn themselves inside out when they prayed for that boy? They did not know why the devil would not come out. That is why they asked.
+
+Jesus said, "Because of your unbelief."
+
+The first step to revival in your own personal life is to refuse to accept things the way they are. If Jesus said it is because of my unbelief, then it is because of your unbelief.
+
+Let me give you a comparison. If you had a group of children in wheelchairs over here in the corner, from three to six years old, so we cannot shift the responsibility onto them, every kind of deformity, little children messed up, demon-possessed, deformed, slobbering, eyes crossed, out of touch with reality, put twenty of them there. You could probably go to the place where they keep them and get twenty in your city alone.
+
+My little girl, whom I nicknamed Jabberjaws, has four brothers. Her oldest brother is twenty-two, and I can testify that little Jabberjaws has already said more in her short four years than all the rest of them put together. Her body is so active that I believe it moves at the speed of thought.
+
+I never had a little girl before. They are different. She will jump up on my lap, pull the fat on my face, and say, "Daddy, daddy," then ask me five questions before I can get five words out answering the first one. Her little mind shifts, and she runs across the room, picks up a toy, dances around, then runs back.
+
+Four-year-old spirits are so active. I cannot even begin to conceive of it. It has hurt me so badly over the years to see children from three to six imprisoned in bodies while their little spirits are just as active as my little girl's, only they cannot do anything about it. I have seen them introvert and go inward and bang their head if that is the only part of them that will move.
+
+Do you think I would go over to that wheelchair section and lay hands on those little children without reaching inside me and turning everything that exists there inside out? You do not think I would reach down and pull for every fiber and ounce of faith in me to see them healed?
+
+Form a special section, get up here, and remain indifferent? Carry on a ministry? No. I would reach inside me and pull everything out. If none of them jumped out of the chair, and I walked out saying, "I do not know," then if the door opened and Jesus came walking in His glorified body and stood behind the pulpit, and I had a chance to ask Him any question, I would ask Him the same one they asked.
+
+"Jesus, when I ran over there and laid hands on those twenty children, it was not Your will to heal them, was it?"
+
+He would say, "I will show you My will," and He would walk over and empty them.
+
+Then He would come back, and I would say, "If it was Your will to heal them, I would like to know one thing. Why could I not cast them out? Did You not want to heal them through me?"
+
+"Yes."
+
+"Then why could I not cast them out?"
+
+He would look me straight in the eye and give me exactly the same answer He gave them. Are you man enough to take it? He would say, "Because of your unbelief."
+
+But I know this one thing about my Jesus: He will never outline a problem without outlining an answer.
+
+When it dawned on me that He would have told me in person not one thing different from what He told them in person that day, I realized we must be missing something. So I pitched my tent, drove the stakes deep, and moved in on that chapter until I could understand the subtle kind of unbelief He was talking about and take the first step to eradicating it.
+
+If you can deal with it, He said nothing, absolutely nothing, would be impossible to you. I did not write this. This is the Word of God. He said nothing would be impossible to you, even the winning of a city.
+
+When I started meditating on this, He summed it up and showed me where I had been in error and why I kept missing it. Look at verse 21:
+
+> Howbeit this kind goeth not out but by prayer and fasting.
+
+"Howbeit" is an analytical word. He analyzed the whole situation, their unbelief, their attempt to use faith, all of it, and said, "How is this? This kind goeth out by nothing but prayer and fasting."
+
+We had better think about this one for a minute. This could hurt.
+
+The prayer He is talking about certainly could not be the prayer they uttered over the demon-possessed boy. That one did not work. He had to be talking about a lifestyle.
+
+He said, "This kind cometh not out but by prayer," and then He added something we faith people do not know a whole lot about: fasting.
+
+The teachers told me they would consent to fasting enough to know it was probably necessary for Roberson's ministry because Roberson dealt in demon deliverance. Not the bucket-foaming kind. The real stuff.
+
+In Brazil, when three thousand preachers were there, one girl from one of the families was demon-possessed. I walked over. She looked normal. I wondered why God said to lay my hand on her. I reached up to touch her, and she threw her arm up, dove under the chairs, and started crawling through the preachers. They were getting out of the way. I jumped on the back of a chair, intercepted her when she came out, and said, "Come out." She went dead.
+
+Some of them started toward her. I said, "Leave her alone. He is coming out." She lay there dead-like for forty-five minutes. Bernard Selgrove said that when we reached up to touch that girl, that devil threw her arm up, and her eyes were streaked with horror and terror as he threw her underneath the chairs.
+
+It did not do any good. The devil came out. Then she wanted to hug me and Bernard. Talk about a tender moment. She hugged both of us, totally set free. We did not even need any buckets.
+
+Hallelujah. Glory to God.
+
+"Well, you are a deliverance ministry. You need fasting, because He said, 'Howbeit this kind.' There are some big devils out there, and they are not going to come out unless you fast."
+
+Jesus did not just equate the deliverance of that demon-possessed boy to fasting. My friend, He equated fasting to the moving of your mountain. The next verse says, "If you had faith as a grain of mustard seed, you could say to this mountain, Remove hence to yonder place." He said it should obey you, and nothing would be impossible.
+
+He did not just equate fasting to demon deliverance, little saints. He equated it to the moving of your mountain, the thing resisting you, the thing that kept your life like it was for the last five years and will keep it like it is for the next five unless you break the ceiling.
+
+What makes it sad is that some of us do not even care.
+
+Fasting has absolutely nothing to do with God, and it has even less to do with the devil.
+
+"I am going to fast until it moves God."
+
+You silly child. He set Himself in motion concerning your covenant two thousand years ago. He delights and charges into your life in answer to your prayer. It is His pleasure to give you the keys to the kingdom that unlock tremendous things of redemption. He pleasures in it. He loves it. It makes His day. He is your Abba Father. What do you mean, you moved Him?
+
+Fasting does not move God. He is not the One stuck.
+
+When the Israelites fasted so their voice might be heard on high, it did not work. But fasting will move you into a place to hear His voice on low.
+
+"I fasted seven days and prayers I prayed a year ago came to pass. Are you telling me I did not move God?"
+
+I am telling you that you did not move God. You unstuck yourself. You dealt with the problem, the problem being the one who possessed the unbelief.
+
+We have talked about prayer for a few nights, and to tell you the truth, I would rather have stayed on it. He would not let me. He said, "Now you have to give the brother to this sister." Fasting is the big brother.
+
+I said, "Lord, if fasting has that much to do with dealing with that most subtle, deceptive, horrible kind of unbelief, the kind that ceilings our life, the kind we do not even know we have, then I am not going to get people to fast in this last decade unless I can understand more about it. How can fasting deal with that kind of unbelief? What does going without food have to do with anything? Is it the sacrifice that pleases You?"
+
+No. Obedience is better than sacrifice, and to hearken than the fat of rams. It is not the sacrifice of you starving. God would like to keep my bones fat and me happy and still be able to answer every prayer I pray. Unfortunately, because of my background, I was not in that condition. But fortunately, we are coming into some place we have never been in.
+
+How does fasting devastate unbelief so severely? Why?
+
+Go to Romans 8:10.
+
+I do not think there are any people on the face of this earth who know more about substitution and identification truths than us faith people. E. W. Kenyon published his great identification books in the 1930s. Jesus was made sin as my substitute, and I am now identified with His righteousness. He bore my sicknesses and carried my pains, and I identify with His health. He went to hell; I go to heaven.
+
+Nobody knows more about substitution and identification truths, especially positional truths concerning my spirit man. I have been made the righteousness of God in Christ and seated in heavenly places with Christ Jesus.
+
+But even though us faith people knew more about substitution and identification truths than almost anyone alive, it seemed like we knew less about the position the flesh has been declared than anyone alive. It did not take long for the devil to move in and corral the camp. Pretty soon this one was running off with this one, this one was adulterating, this one was fornicating. It just took the devil a while to corral the thing because we did not understand the position our flesh has been declared.
+
+Meditating the Word, praying in the Holy Ghost, confessing the Word, and praying the Word all enforce the position my spirit has been declared, which is alive and well and seated in heavenly places with Christ Jesus.
+
+But how about your body? What position has it been declared?
+
+Romans 8:10:
+
+> And if Christ be in you, the body is dead because of sin; but the Spirit is life because of righteousness.
+
+How many of you have Christ in you? Then this is present tense. You qualify.
+
+In the same verse where He declared my spirit life, He declared my body dead because of sin. It is irrelevant whether you are wearing that body or whether you died two hundred years ago and your spirit is dancing around heaven while your body has decayed. Positionally, the thing has been declared the same position: dead and waiting on the sound of the trump.
+
+"But Brother Roberson, it is certainly not dead. It wants to sin and do everything else."
+
+That is why Romans 6 says:
+
+> Reckon ye also yourselves to be dead indeed unto sin, but alive unto God through Jesus Christ our Lord.
+>
+> Let not sin therefore reign in your mortal body...
+
+Why would he have to say not to let it reign if there were not a capacity for it to reign? When He declared the body positionally dead, He said reckon it to be dead indeed to sin. Although it has a capacity to sin because of what it inherited from Adam, positionally, as far as the power in it to dominate your spirit, He has given you a positional truth that says it has been rendered powerless and dead to dominate your spirit.
+
+Praying in the Holy Ghost and meditating the Word execute the position my spirit has been declared. What executes the position of death my body has been declared concerning lust, carnality, fears, torments, and even the works of the flesh of heresies, which are false doctrines?
+
+If I can execute positional truth by praying in the Holy Ghost, what can I do to execute the positional truth of the declaration of death?
+
+Have you ever heard of fasting?
+
+Fasting enforces the position your body has been declared: dead concerning its dominance over your spirit.
+
+If I took Louise, stuck her in an iron room where she could not eat her way out, put her on a 120-day fast on distilled water, and slipped her an envelope of distilled water under her door every day, Louise would so mortify her body and put it to death that it would never bother her again. It would never rise up in rebellion against anything the Holy Spirit was doing ever again. In fact, she would be so free from the dominance of her flesh that her inner man would be dancing the annals of heaven with Jesus while the funeral went on down here.
+
+The only time a man brags about fasting is when he esteems it a sacrifice. If you do not esteem it a sacrifice but as something you run to because of the hunger inside, and you know you have found another tool that will release everything Christ is in you, the hope of glory, in a destitute, backwards, and perverse generation, something amazing begins to happen.
+
+The flesh will dominate your spirit with lust, greed, unbelief, carnality, hatred, malice, and self-exaltation. Your poor spirit is down here dominated by all of this. Then somebody preaches a message that injects enough hunger in you that you think, "I am going to fast a few days." When you do, the death sentence begins to set in, and mortification, the execution of positional truth, begins to take place in the flesh. Its dominance starts dying. At the same time, through prayer and fasting, you pray in the Holy Ghost, and your spirit comes higher until the two lock level. Then your spirit starts gaining dominance, and prayers start working.
+
+"I am so hungry. I am so grateful to my Father that He has had mercy on me. I am so grateful I could not be a man condemned to live my life out with this insatiable hunger and not know how to quench it. That is a fate worse than death. He has had mercy on me."
+
+We know fasting executes a positional truth of death, but how does it put the forces of the flesh to death and allow your spirit to soar?
+
+Go to Isaiah 58, the fasting chapter:
+
+> Is not this the fast that I have chosen? to loose the bands of wickedness, to undo the heavy burdens, and to let the oppressed go free, and that ye break every yoke?
+>
+> Is it not to deal thy bread to the hungry, and that thou bring the poor that are cast out to thy house?
+>
+> When thou seest the naked, that thou cover him; and that thou hide not thyself from thine own flesh?
+
+Here is the part I did not understand. I said, "Lord, I understand this is the fast You have chosen to break every yoke, and we always tend to think it means breaking the yoke off other people. But You went on to say it is to deal your bread to the hungry, to clothe the naked, and to bring those cast out into the house. I have heard people teach that when you fast, save the money from fasting, buy clothing, clothe the naked, buy food, and feed the hungry."
+
+I used to think that was what it meant, but it is not talking about that, not even remotely. In fact, He summed it up when He said:
+
+> ...that thou hide not thyself from thine own flesh.
+
+When I studied the old men of God who caused revival in their generation, they had one common thread that ran through their lives.
+
+The late A. A. Allen got so hungry for God as an Assemblies of God pastor that he kept telling his wife, "I am going to fast." He would lock himself up because of that insatiable hunger. She would fix supper, and the smell would get into the closet where he was praying. Pretty soon the door would open, and he would come out and sit down. She would feed him. He was embarrassed to say how many times that happened.
+
+I would be embarrassed to tell you how many times I started a forty-day fast and did not finish. Do you have a calculator?
+
+He did this time after time. One day he was so hungry that he said, "I cannot take it anymore, wife. I am going again." That night she cooked supper. He smelled it, came out, and sat down like usual. She set a bowl of stew in front of him. He put a mouthful in his mouth, began to weep, dropped his spoon, went back into the closet, and locked the door.
+
+He does not know how long he was in there, no more than William Branham knew after he lost his family and was devastated, and a vacuum was created in him nobody could fill. Branham went up into the woods and told his wife, "If I do not come back, please..." He said, "I must go." He went up into the woods until a little light appeared behind him about the size of a silver dollar, until a full-blown angel was in his presence and gave him a mandate that changed the world.
+
+A. A. Allen went back into the closet. He said, "I do not know how long I was in there." All of a sudden a bright light appeared in the closet. It was such radiance that it lit the whole closet. A voice spoke out of the light and started giving him a list of thirteen things to get out of his life.
+
+He said, "Wait a minute, Lord, wait a minute." He got a little dull pencil out of his pocket, sharpened it with his teeth, got a little piece of paper, and the Lord started over. He wrote those thirteen things down.
+
+He said the first nine were easy to eradicate. Everybody did them. But the last four took him several years to truthfully, before God and in clear conscience, mark off the list. But in his testimony I could feel the power.
+
+He said, "The night I marked the last one off, I went out and stood before the church and stood before the prayer line and started to pray like I usually do. All of a sudden they started going out under the power, and miracle after tremendous transformation miracle took place." That launched him into a worldwide ministry that shook the United States as a tent evangelist.
+
+Thirteen things.
+
+What does it mean that you hide not yourself from your own flesh?
+
+I said, "Jesus, does that mean I am supposed to carry on regular activities with my family and relatives like You said in Matthew 6, to wash my face and not appear as a man to be fasting, and You will see and reward me openly?"
+
+No. He is talking about when you are locked into daily affairs of life and cannot get away, do not use that as an excuse not to fast. He was not saying to hide, because Paul commanded that if you want to separate from your wife for a time and lock yourself away for a season of fasting and prayer, it is a good thing, then come back together. Paul advocated separation, and the Bible would not contradict itself.
+
+What does He mean, "hide not yourself from your own flesh"?
+
+I can tell you exactly what He means. Why does a missionary have to come in, put up a projector, and show you seven-year-old children dragging their two-year-old sisters through the garbage dumps of Calcutta to get you to renew your pledge? What ugly thing is it inside you that will not let you clothe the naked and feed the hungry?
+
+When He said, "Hide not yourself from your own flesh," He was saying that fasting will cause you not only to face those ugly things that will not feed the hungry and clothe the naked, but it will cause you to put them to death.
+
+The devil would dance for glee if you did not hear this. If you catch hold of this, you are going to trouble his kingdom.
+
+Why do people have to come and beg? What is in us that is so carnal that we are indifferent? He commanded that you hide not yourself from your own flesh. This is the fast He has chosen, that you break those hideous yokes off yourself.
+
+You think this city is going to heaven by itself? You are the only hope she has. You do not have a right to turn around and put the responsibility on someone else. You are her only hope. What is it in you that does not care?
+
+Are you going to hide yourself from your own flesh, or are you coming face to face with it?
+
+When I went into my first fast, I locked myself away because I did not know what to expect. I came out of it with a certain amount of glee and joy. All God did was visit me. He gave me revelation knowledge. I thought, "Boy, this is good stuff."
+
+After the first one, I noticed my life did not change much. I had a good time, received some revelation knowledge, and seemed to be a little closer to the Lord. Then I went into another one. When I came out of it, I thought, "What did I do wrong, God? I locked myself away in fasting and prayer, and now I come out of this thing afraid of everything. I am full of fear, intimidation, and torment. At least before, I kept it under control. Now it is surface level."
+
+I said, "What is the matter with me?"
+
+It seemed like I was in such torment that I did not get any relief unless I thought about going into a closet and praying. It got worse and worse. Out of pure instinct, I went into another fast, and that is when something happened. Something died.
+
+Coming out of that one, God began to minister to me. I said, "Boy, the devil really fought me on that last one."
+
+He said, "No, that was not the devil. I was bringing out of the inside of you what you were capable of and putting it to death. You were not hiding from your own flesh."
+
+This preacher fasted forty days in Norway, and at the end of it he left his wife. He heard me teach and said, "You mean to tell me that was not the devil fighting me when I left my wife?" He got an apartment for three months before they reconciled because all of a sudden his wife was not righteous enough, she was not perfect enough, she did not love the ministry enough. Everything was wrong with her. All he was doing was looking in a mirror.
+
+He said, "You mean what I was capable of was what surfaced and God was putting it to death?"
+
+I said, "You got it, my friend. You are not going to fast forty days, thirty days, or twenty-one days and come out worse than you went in. The reason He pulled those deep flesh characteristics out and put them on the table is because you were never more full of power."
+
+He said, "It took us three months to get back together. You mean I was capable of that the whole time?"
+
+I said, "It is better now than when you rule over maybe ten thousand preachers in your organization and then have that ugly thing rise up. It is better to put it to death, to face yourself, to hide not yourself from your own flesh."
+
+Fasting starts putting the things of the flesh to death. Sometimes they do not want to die, and they kick and scream in their death throes. When you start feeling the resistance, that is not the time to quit, because you are about to have the equivalency of a meltdown. Those things are going to die once and for all. You are going to remove that subtle ceiling of unbelief that has dominated your life, and your life and faith are going to begin to soar to the next level.
+
+My grandpa hated my daddy. My father abandoned me when I was two, abandoned my mom and the rest of us. He was a preacher's kid, and I did not know until I had answered the call and was preaching that my grandpa was a tent evangelist. My father spent most of his life in jail. Grandpa hated him.
+
+When he abandoned us, we went to live with grandpa when I was in the fourth grade. I know I must have looked like my dad because as I grew up into my teen years, grandpa would be holding a board and say, "Get me that hammer." There would not be anything else on that table but a hammer, but under that pressure I could not see it. The longer it took me, the louder he screamed until I panicked. Then he would throw the board down, start cussing, come over, and kick me so hard my teeth rattled.
+
+That instilled some kind of fear and intimidation in me toward authority. Even when God began to exalt me, He could not take me any further into peace. Even when I stood on the platform with some of the world's greatest evangelists, I was so intimidated that I was always jostling for their approval: please throw me a little tidbit and make me feel like I have done okay.
+
+When I went through that last seeking time, I did not know what was wrong. Torment, fear, and ungodly pressure came. I did not know He was putting those things to death and they were kicking like mules in their death throes.
+
+I came out on the other side and could only explain what I had as the most unsettling peace I did not know could exist. I finally labeled it aggressive peace. It does not matter what God calls me to do, the size of the revival, what city, or if I am sitting in a jail cell. If you have that kind of peace, you are unmanageable by the devil.
+
+God pulled me into that room and started talking to me and teaching me some things we have been talking about today. He said, "Did you know that nobody can intimidate you or hurt you if you did not give them the authority to do it?"
+
+I thought, "I have been so stupid."
+
+My goal is to turn you over to the Holy Ghost so He can turn you over to Jesus until you become so complete in Him that your dependency is not on man but on Him. They can put you in that coal mine in Siberia, and you can smile and say, "I am complete in Him. He is my sufficiency."
+
+Why? Because fasting executes the positional truth that your body has been declared, and He is talking about the carnal forces of the flesh: lusts, fears, intimidations, cares, and heresies. He will put them to death.
+
+I am glad you asked what Jesus said. Go to Matthew 9, and then we will finish tonight.
+
+Matthew 9:14:
+
+> Then came to him the disciples of John, saying, Why do we and the Pharisees fast oft, but thy disciples fast not?
+>
+> And Jesus said unto them, Can the children of the bridechamber mourn, as long as the bridegroom is with them?
+>
+> But the days will come, when the bridegroom shall be taken from them, and then shall they fast.
+
+Jesus was saying, "I am the Head of the Church. I am with you. You are My disciples. I am the Bridegroom. The anointing is on Me. But the day will come that I will be taken away."
+
+Then notice what He said:
+
+> ...then shall they fast.
+
+He did not say, "Maybe, if possibly, if they feel like it in the future sometime, if the opportunity arises, they will fast." He said, "My disciples in that day shall fast." A disciple is a disciplined follower. He said in that day, they shall fast.
+
+But here is the part I did not understand. Did you know Jesus was still answering their question in the next verse?
+
+> No man putteth a piece of new cloth unto an old garment...
+>
+> Neither do men put new wine into old bottles...
+
+That is all very good, except what does it have to do with fasting? They asked, "John's disciples fast often, but Your disciples do not fast at all." Jesus said, "I am the anointing. I am here. As long as I am with them, they do not need to fast. But the day will come that I will be taken away, and then they will fast."
+
+Then He says, "You want to know why? Because no man puts new wine into old bottles."
+
+That made about as much sense as the preachers I heard preaching on it. No man puts new cloth on an old garment because the new patch is strong, and when you sew it onto the old rotten garment, it will give way at the stitches and make the rent worse. All of this is fine, but what kind of answer is that to why they do not fast?
+
+People told me, "A person has to be born again before he can receive the wine of the Holy Spirit. You cannot put new wine in old skins. You have to be born again to receive the baptism."
+
+That is funny. Poor Jesus did not have enough sense, apparently. He teaches entirely on something else on both sides of those verses, then suddenly stops and says, "Look, you have to be saved to get the Holy Ghost." That is tremendous. My God, that is deep.
+
+What was He saying?
+
+When it dawned on me, I felt so stupid. For six years that was locked in my spirit. The day it came forth, it came forth enough that my spirit understood it first, but my brain was too carnal to analyze it. I knew it in here; I could not get it out of here.
+
+If Christ is in you, the body has been declared dead because of sin. You are still wearing a body given to you by the first Adam, not the last Adam, Christ Jesus. That is why it is capable of sinning. He says, "Let not sin therefore reign in your mortal body."
+
+Even though I am wearing a body given by the first Adam, an old wineskin, an old garment, I possess a spirit that has entered into Zoe, God-kind of life, and is seated in heavenly places with Christ Jesus.
+
+Jesus said, "When I am gone, in that day you will fast, for no man puts new wine in an old bottle." A man goes out and buys a new wineskin. You fast for the same reason a man goes out and buys the new wineskin: fasting will fortify the flesh, put it to death, and cause it to be able to sustain the power within.
+
+He said you will fast for the same reason a man does not put a new patch on an old garment. If you are going to patch an old garment, you might as well put an old patch on it. But the new garment gets the new patch. Fasting fortifies and strengthens the flesh, just like a new wineskin can last the duration of the fermenting process without bursting.
+
+Fasting will sustain your old wineskin and cause it to be like new, able to sustain the power. It will put everything to death that would destroy the precious anointing and cause the wineskin to break and spill out.
+
+It will sustain the old wineskin, that it burst not.

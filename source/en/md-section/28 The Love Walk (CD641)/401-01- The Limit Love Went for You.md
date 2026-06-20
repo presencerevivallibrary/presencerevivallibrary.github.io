@@ -1,0 +1,359 @@
+# The Limit Love Went for You
+
+## You Cannot Love Freely Until You Know How Deeply You Are Loved
+
+You can put a marker in Matthew 12, and put a marker in Psalm 88 if you want. I can just hear some of you thinking, "What are the chances of getting to any of those?" Jonah, the second chapter, if you please. That way I do not have to waste valuable teaching time with the rustling of Bible pages.
+
+Hallelujah.
+
+When we started in Isaiah 52:14 this morning, He wanted me to talk about the love of God, explicitly the limit that this love went for you. The limit that love went for you.
+
+If you can understand the agape, the God-love He had for you when Jesus went to the cross, I can tell you this much: one of the main reasons people cannot love is because they have no revelation of how much they are loved.
+
+Women, men, children - they are all ruined basically because when they left their families, they had no revelation of how loved they were, which is one of the most powerful things that releases a person to love.
+
+I had a lot of problems with it. In fact, I wanted to love God without loving people. Scripture says the love of God is perfected in you as you love one another. I thought, "Why can't I just go to You and perfect it? Why do they have to enter in?"
+
+Because when God's love is perfected in you, it is always toward other people. Then I realized the startling revelation: it is not the people who are nice to you who are always perfecting the love of God in you. Sometimes it is the ones who are mean to you, and you are forced into new areas of forgiveness you have never walked in before if you want to maintain your relationship with God.
+
+Amen?
+
+In my ultra-Pentecostal holiness days, the first seven years, I had no revelation of love. They taught me I was born again by a God who was watching over me with a hammer, just waiting for me to make any kind of mistake. I lived in fear and condemnation all the time.
+
+Then I found out I was the righteousness of God in Christ by the rebirth, by being born again by the Spirit. I found out that when I have problems, God does not want me running from Him. He wants me running to Him. He is my answer. I am born again, and He is my answer when I have problems. He is my answer when the problems seem insurmountable. He is not mad at me. He has forgiven me.
+
+So I could not understand love too much. I was born again, and then they taught me about this God who was mad at me. Then I found out. God went on to teach me the limit that love went for me. I remember the day I found out how much I was loved. That is the day it released me to begin to love. I began my journey.
+
+It seems this is one of the most important journeys to God. It is the one He will walk with you most profoundly if you choose to take it. But again, it is almost impossible until you get a revelation of how much you are loved. Once you get that revelation, it will begin to release you to love.
+
+## Ensenada Showed Me Miracles Without Compassion Were Not Enough
+
+It began in the first two or three years after I was filled with the Holy Ghost and preaching. I prayed a lot in the Holy Ghost, and I thought I started hallucinating one day. What it was, was a vision passing through my mind. I kept seeing a large crowd of people. They were dark-skinned. The whole crowd was dark-skinned. I did not know where they were. God would not tell me. I just knew that sometime in my future I would minister to them.
+
+It just so happened that at the end of that year, I found myself going to Ensenada, Mexico.
+
+I said, "God, why didn't You tell me where that was and what that was?"
+
+He said, "Because you were preparing it in My plan by praying in the Holy Ghost. I was not going to let you in on it ahead of time because you did not have the faith for it, and it would have scared you."
+
+So He left it until the time came and began to come to pass.
+
+I found myself in old Ensenada, Mexico. I was preaching a meeting with the pastor's daughter from the church I was born again in. I had only preached a couple of years at that time, and I was just beginning to think I was some kind of hot rod without the compassion of Jesus.
+
+I got turned on to the Word. I was a Word man. I knew what the Word said. Some proud arrogance got in - not too much, just enough to make you a little nauseated.
+
+I went to Ensenada, and God was using me in some miracles. Sometimes He would give me a word of knowledge, and I would call people out.
+
+There were three or four thousand people there, the pastor's daughter said. I was standing up there, a little afraid. I had never faced anything like that before. But the anointing came.
+
+As I was ministering along in the Word, all of a sudden a word of knowledge came just as clear: "There is somebody right out here in the front who cannot bend over. Get him up on the platform."
+
+I said, "There is somebody up here..."
+
+No sooner did I get that out through the translator than somebody got up. He walked up throwing his legs out to the side like this.
+
+I thought, "Oh God. Oh no. Oh no."
+
+They helped him up on the platform. But I knew what I had seen, and a holy boldness came on me. I told the translator, "You tell that crowd that God is alive. He will heal him. If He is dead, He will not."
+
+The translator just looked at me.
+
+I said, "Tell them if He is alive, He will heal him. If He is dead, He will not."
+
+He looked at me and looked at them. What I did not understand was that if I told them God was going to do it and He did not, they had been known to get hostile.
+
+I said, "Say it!"
+
+He finally said it. I knew he said it because the crowd got real quiet.
+
+So I reached over, laid my hand on this man, and said, "In the name of Jesus." The man staggered back a little bit, and I was going, "Mm-hmm, mm-hmm, mm-hmm."
+
+All of a sudden, he unbuckled his belt buckle. I thought, "Oh no, this guy is demon possessed." He dropped his pants and had the scroungiest long johns on I had ever seen. I thought, "We are in trouble."
+
+He did that to unbuckle braces he had on his legs.
+
+About that time, the crowd jumped up and started coming forward. They started getting up on the platform. It was a makeshift platform, and when too many of them got on it, it broke and started crumbling.
+
+The interpreter told me to run. I ran around behind the buildings, where they cornered me. It took me hours to pray my way out of there. Those nice little ladies who made the sign of the cross wanted prayer. The nice little ladies who would hardly make eye contact wanted prayer. Instead of looking and going, "Yes, the old man of God," they were grabbing me, putting my hand on their body, and asking for prayer. Miracle after miracle happened.
+
+I really felt like something that night. I went back to my motel thinking, "I have arrived. What would You do in Ensenada had I not arrived?"
+
+The next day when I went back, I thought, "Oh boy, I am really something." Evidently, those people had gone home and dug things out of their closets that we keep locked up in the lower levels of insane asylums. There was one guy who kept throwing rocks at the crowd. There was a baby with water on the brain. There were people trying to get close enough to touch me. It was a mess.
+
+Not too many got healed. I wish more had gotten healed.
+
+I went back home. I know it knocked something out of me. I said, "God, I do not think I can go into ministry if You do not heal those people. I do not think I can take this. I do not know what to do."
+
+I remembered the old-timers like A. A. Allen preaching on fasting. I thought, "This has got to be the answer." So I had a motor home. I cleared my calendar, drove the motor home out into the woods, and said, "I am going to fast and pray, God, until You come."
+
+I do not know how long I was out there, but He came and talked to me. I remember His voice. I could not hear it audibly, but I could hear it. It did not seem like it was out there. It did not seem like it was in here. It seemed like it was everywhere, but I could hear it very distinctly.
+
+He said, "Do you want to walk in the fullness of everything I have?"
+
+I said, "Yes, sir."
+
+He said, "Do you want to walk in the best a man can have this side of glory?"
+
+I said, "Yes."
+
+He made one statement down in my spirit:
+
+"Then walk in the fullness of My love."
+
+I said, "Is that all?"
+
+I have regretted that statement. "Is that all? You mean I get to break my fast?"
+
+I went home and told my wife, Rosalie, "Cook me something. I get to break it. All He said I had to do is walk in love. Piece of cake."
+
+So I made up my mind to love people. Have you ever tried to do that in your own strength? We all have our breaking points. When I reached mine, I would break them.
+
+I maybe lasted three months trying to do it. I found myself back in the presence of God yelling, "Oh God, help me! Help me! Can I go back on the fast? At least it comes to an end. These people You asked me to love are just not that lovable. These people You gave me are just not that lovable. I do not know what to do with this."
+
+So I went back into praying in tongues because I was at a loss as to what to do.
+
+## The Vision of the Cross Revealed Love Marred Beyond Recognition
+
+I prayed in tongues and prayed in tongues and prayed in tongues, until one day when I was locked in that holy closet with God, my spirit was in divine communication with His Spirit. He that prays in an unknown tongue speaks not unto men but unto God. You have a direct line to God. It is that holiest of all holy closets, when your spirit enters into the presence of God and communicates directly with the Father Himself.
+
+I had been communicating for months.
+
+"When did you stop? When did you take a break?"
+
+I took a break to eat, sleep, and preach. Otherwise I was in turmoil.
+
+All of a sudden, a vision passed through me, and I could not recognize it for what it was. I almost thought it was of the devil. I almost tried to rebuke it.
+
+I said, "What is this? I do not know what this is. This is the most horrible thing I have ever seen."
+
+Whenever I would see the vision, it would shock me so badly it would pull me out of the Spirit. So I would start praying again, enter back into the Spirit, see the vision again, and be startled back out. It went on that way for several days.
+
+I said, "Who is this? Who is this person who is so beaten-looking, so deformed-looking, so swollen-looking, so hideous-looking, so beyond recognition? By looking at its form, I cannot even really tell what it is. What is this I am seeing?"
+
+He said, "You are seeing Jesus crucified. You are seeing Jesus crucified."
+
+Being a Word man, I will tell you this: I do not care what or who talks to me, I had better see it in His Word.
+
+He said to me, "You know the chapter Isaiah 53 that prophesies the crucifixion of Jesus: He was wounded for our transgressions, bruised for our iniquities, the chastisement for our peace was upon Him, and with His stripes you are healed."
+
+I said, "Yes, yes. Who does not know that chapter that preaches salvation? Who does not know He died? Who does not know He bore my sicknesses and carried my pains? Who does not know the chastisement for my lack of peace was laid on Him?"
+
+He said, "Yes, but Isaiah 52 led into Isaiah 53. Son, if you are going to understand how much I love you, you have to understand the limit that love went for you. Your price of salvation did not come cheap. It did not come cheap. You cost heaven the best that she had."
+
+Nobody has ever loved me like this Jesus, and I have given my life to Him.
+
+I said, "God, You will have to give me the verse."
+
+He did. Look at Isaiah 52:14:
+
+> As many were astonied at thee; his visage was so marred more than any man, and his form more than the sons of men.
+
+This is a prophecy speaking of Jesus before it went into Isaiah 53. You want to know what He looked like when He hung on the cross and cried, "My God, My God, why hast Thou forsaken Me?"
+
+It became dark, and under the cover of darkness Satan was able to employ every hideous, damnable sin, sickness, and pain ever scheduled to be employed on any human being throughout history. Do you think it was a pretty sight?
+
+Many were astonished at Him. His visage, His visible appearance, was marred more than any man. His form was marred more than the sons of men.
+
+His form makes me a man because I have the form of a man. I am not a gorilla. I am recognized as a man because I have the form of a man. Yet this prophecy says His form was more marred, more altered, than the sons of men.
+
+Sons of men speaks of every generation that children are born.
+
+Under the cover of darkness in that moment of time, He cried, "My God, why hast Thou forsaken Me?" and God turned His back on Him. He had to, because He was about to be made my sin, that I might be made the righteousness of God in Christ. He had to.
+
+His form was marred, altered more than any man, more than the sons of men. There is no generation that has been born or will be born from the day of His crucifixion. There is no deformed child, no child with water on the brain, no child who never broke through to consciousness, no alteration ever done to the human body, spirit, or mind that was more altered and more deformed that day than Jesus was.
+
+Surely He has borne my sicknesses and carried my pains. As He substituted Himself in my disease, He bore every damnable disease that could ever come on mankind, because He loves me and has set me free.
+
+I thought it was the beating the Roman Empire gave Him that caused Him to look so hideous. This thing I saw in the vision - do you think it resembled the paintings you hang on your walls? Jesus crucified, a nice little guy hanging on a cross, a crown of thorns, a trickle of blood, a little whip lash. Nice, pretty picture.
+
+You would not want what I saw hanging on your wall.
+
+Oh no. The day when your sin met the body and spirit of the spotless Lamb of God was the day when love went to its limit. Nobody has ever loved you like Jesus.
+
+How can you destroy people? Can you walk with them? There is a payday coming. If you will not let Him die for you, you are going to die for yourself. If you will not let Him pay the price for you, you are going to pay it. If you will not let God resurrect Him for you, you will never be resurrected.
+
+## The Law of Sin and Death Marred Him More Than the Roman Beating
+
+It must have been the beating the Roman Empire gave Him, because I heard about it. They sported with Him. They took reeds, put a cloak over His head, beat Him in the face, and said, "Prophesy. Which one of us struck You, Mr. Prophet?"
+
+They jerked His beard and His hair. The Romans played a game that resembled chess. They moved Him from one place to another. They mocked Him and scourged Him. And all He came to do...
+
+I thought it was the beating until I found out that according to prophecy, not a bone in His body was broken. I said, "How could He be deformed as such?"
+
+No, it was not the beating. He was made to be sin for me, that I might be made the righteousness of God in Christ. It was not the beating.
+
+It went back to the Garden of Eden when God confronted Adam because of the treason he had committed. He said, "Because of what you have done, cursed is the ground." The law of sin and death entered this planet. It was a law so powerful that it perverted everything in its path. Human beings have reverted to a nature where they even eat each other in cannibalism.
+
+God, what happened to us?
+
+The law of sin and death, so powerful it perverted everything in its path.
+
+It was not the physical beating. It was when Jesus cried, "My God, why hast Thou forsaken Me?" that the law of sin and death that destroyed an entire planet cleaved to Him all at once. When it did, He deformed, drew up, puffed up, became every damnable disease I was. He was made to be my sin. He drew up, puffed up, swelled up into such a hideous thing I could not even recognize it.
+
+For a brief time, as a man hanging on the cross, I could stay right here for another hour. But I know what He wants.
+
+It took me a while to digest what He showed me. I can tell you this much: nobody has ever loved me like this Jesus. The more of my life I give to Him, the more peace I have, the more purpose I have, the more direction I have, the more strength I have.
+
+Nobody has ever loved me like this Jesus.
+
+And buddy, if He loves you enough to suffer those things, I would not touch you with a ten-foot pole. If Jesus loves you that much, enough to suffer those things and die, I would not touch you. You would have to torture me before I would say anything that I knew was destructive to you.
+
+I let this digest, and I told God, "It would be enough. You could stop right now, God. Stop right now, and You have convinced me that You love me. You can stop right now. I believe it."
+
+He did stop for several months. But then He deemed it a day to take me a step further. I am going to take you the same step further.
+
+I have instructions from God this morning. He said He does not want you to take offense this year. He does not want you to cause offense this year. And sometimes, to walk out of offense when somebody has wronged you so badly you can taste it takes the love of God.
+
+If you are going to walk in that kind of love, you are going to have to know that Someone loved you.
+
+## Psalm 88 Showed Me the Depths Where Jesus Suffered in My Place
+
+He does not teach me as much by vision now as He taught me then. Then I did not have the foundation of the Word I have now. Every time I prayed myself in the Holy Ghost to a place to receive a mystery, sometimes to give me the understanding of it, He had to give me a vision. I am having them less and less because my knowledge has increased. Now by revelation, God can take a verse here and there, Old and New Testament, bring it together, and give me the understanding.
+
+I had only been preaching a few years. I was in Klamath Falls, Oregon. Boy, I had listened to Kenneth Copeland's tape, From the Cross to the Throne, how Jesus died, went to the lower parts of the earth, was resurrected, and sat down at the right hand of the Father. I was so excited about that message. I listened to it probably a hundred times until I got it inside and could preach it just like Copeland could.
+
+Right in the middle of Copeland's message, I put Jesus in a deep, dark place in the lower parts of the earth. Man, I had everybody. Copeland was a phenomenon then, and his message was incredible. I had everybody on the edge of their chairs. I could have said "boo," and they would have fallen off on the floor. Their eyes were bugging out. I had them.
+
+Suddenly a vision came right in the middle of a statement. I thought I had stood there a long time, but they said it was just a pause, long enough that they knew something happened to me because it looked like I went somewhere.
+
+Oh, I went somewhere all right. I went to some lower part of the earth for a moment in a vision. I found myself standing on the edge of some dark place, so pathetically dark that any person in it would simply be a consciousness, an entity. While I stood at the lip of it looking in, I was very conscious of being absolutely forsaken, so alone, destitute, hopeless, lost.
+
+While I stood there and stared, I felt all of it. Then somehow, in the midst of that darkness, God let me see.
+
+When I came out of it, I would not even tell them what I saw for a moment. I said, "God, You have to understand. In this message, From the Cross to the Throne, I just put Jesus in a deep, dark place. I thought He just went down there and came right back out. If what I saw in the vision was in proportion to the message, I put Him in that dark place. Are You telling me what I saw was Him? You will have to give me verses for it."
+
+He did.
+
+Go to Psalm 88 and hold it there for a moment. When we begin, it will be at the first verse.
+
+Let me tell you what I saw. I saw a man lying prostrate on his back in this cavern-like place. It was so dark. If you were alone in it, you would exist in a state of listlessness, a state of hopelessness. That is what I picked up standing there looking in.
+
+When I finally saw the figure lying prostrate on his back, he had his hands lifted like this. The next thing I heard was a voice crying, "Help me. Help me. Help me."
+
+Then I saw the origin of his torment. Worms seemed to have covered his body, crawling in his eyes and mouth. He was screaming for torment.
+
+You can understand my dilemma, having just, according to Copeland's message, put Jesus in a deep place. Before I would tell the crowd, I said, "You will have to give me verses."
+
+He did not give me Psalm 88 right away, but He did quote this in my spirit:
+
+> They shall be cast into outer darkness...
+
+And:
+
+> Their worm dieth not.
+
+There seems to be some kind of tormenting worm significant to hell. It will be with you as long as you are there.
+
+Now you are going to have to decide. When Jesus said, "As Jonah was in the belly of the whale three days and three nights, so must the Son of Man be in the center of the earth," you are going to have to make your own decision.
+
+"As" is a comparative word. As Jonah was. Find out what he was, and you will find out why Jesus was in the center of the earth.
+
+You know the story of Jonah. Every Sunday school child knows it. Basically he was running from God. He got on a ship. The waves became boisterous, sinking the ship. Every man called out to his god. They cast lots. The lot fell on Jonah.
+
+He said, "I am a Hebrew. My God has made the heavens and the earth."
+
+They were exceedingly afraid. They said, "What do we do?"
+
+He said, "Cast me overboard."
+
+Sacrifice.
+
+At that, the world tried not to crucify Him. They rowed against the storm and could not win, until finally they threw Him overboard. Immediately the waves ceased.
+
+Let me tell you something. Your boat was sinking. Humanity was sinking. She had no answers, no way out, cut off from God. But He sent Jesus. We threw Him overboard, and we were saved.
+
+God prepared a great fish, a whale, that swallowed Jonah. In the prophecy, Jonah said, "Out of the belly of hell cried I." He cried to be delivered. Psalm 88 says the same thing.
+
+You are following me. You are going to have to settle this. It is hard to conceive, but nobody has loved me like Jesus either.
+
+Either He went to the lower parts of the earth or He did not. If He did, He went to suffer in my place.
+
+They shall be cast into outer darkness, where there is gnashing of teeth, and their worm dieth not. I saw Him lifting His hands and crying, "Help me." I thank God it did not last. Over three days and three nights, the claims of justice were settled, and God resurrected Him.
+
+Thank You, Jesus.
+
+Psalm 88 says:
+
+> O LORD God of my salvation, I have cried day and night before thee:
+> 
+> Let my prayer come before thee: incline thine ear unto my cry;
+> 
+> For my soul is full of troubles: and my life draweth nigh unto the grave.
+> 
+> I am counted with them that go down into the pit: I am as a man that hath no strength:
+> 
+> Free among the dead, like the slain that lie in the grave, whom thou rememberest no more: and they are cut off from thy hand.
+> 
+> Thou hast laid me in the lowest pit, in darkness, in the deeps.
+
+I am counted with every unregenerated man who goes down to the pit. I am counted with every lost man who goes down to the pit. He was made to be sin for me, that I might be made the righteousness of God in Christ.
+
+"Thou hast laid me in the lowest pit, in darkness, in the deeps."
+
+You know the parable of the rich man and Lazarus. Lazarus died and went to Abraham's bosom, a place of comfort. But that level of comfort was not where Jesus went when He was suffering redemptively for me. He said:
+
+> Thou hast laid me in the lowest pit, in darkness, in the deeps.
+
+A place so dark that I can still remember the hopeless feeling of listlessness and being so alone.
+
+Nobody has ever loved me like this Jesus.
+
+> Thy wrath lieth hard upon me, and thou hast afflicted me with all thy waves.
+
+He afflicted Him with all His waves. "He was made to be sin for me" was one wave. "Surely He has borne my sicknesses and my pains" was another wave. "The chastisement for my lack of peace was upon Him" was another wave.
+
+My God, I am free.
+
+> Thou hast put away mine acquaintance far from me; thou hast made me an abomination unto them: I am shut up, and I cannot come forth.
+> 
+> Mine eye mourneth by reason of affliction: LORD, I have called daily upon thee, I have stretched out my hands unto thee.
+
+When I was caught up in the Spirit, I saw this man lying on his back. Worms seemed to compass His body, crawling all over Him. His hands were up, and He was crying, "Help me! Help me!" crying by reason of His infirmity.
+
+God had to bring me into this. I was pretty rough around the edges. My mother died of alcoholism when I was in my twenties. My dad was a preacher's kid. He forsook me when I was still toddling. I got hard around the edges. Maybe He does not have to deal with you this way. He has to deal with me this way.
+
+Nobody has ever loved me like this Jesus. No one.
+
+## The Resurrection Made the Firstborn of Many Brethren
+
+A man told me about a friend of his who was flying a light plane. They had just had the plane serviced, and someone left a part off of it. Emissions came into the cockpit. He got drowsy and passed out. The airplane went into a spiral and fell into a cow pasture. It skinned him and threw him into the pasture.
+
+When he came to the next day, he had lain there so long that his bare skin had seeped cow manure and dirt up into the bloodstream. He had maps in his hands, and they were next to him. He could hardly move, so he covered himself with the maps to keep a little warm that next night. They finally came and found him.
+
+They brought him to the hospital and cleaned him out as well as they could. They had to put him in a cast because of how badly he was broken up. Several weeks into the cast, he said a pain came into his leg so bad he felt like he was going to die. He ended up screaming. They put him on morphine and everything that kills pain. Eventually it would not kill the pain.
+
+Finally they took the cast back off and found a colony - and I am sorry, you have to eat in a few minutes - a colony of maggots. He said, "Never had I felt such pain."
+
+He just wants me to tell you how much He loves you.
+
+Yes, He was crying in torment, listlessness, hopelessness, forsakenness, and loss. He was also in torment in that place, and He cried and cried by reason of His infirmity.
+
+There is one vision I am believing for: the resurrection. But I can speculate the same way Copeland did. I thank God He did not leave Him there. According to Jonah, He was there three days and three nights. I thank God He did not leave Him there.
+
+There must have been a power shortage in heaven that day. The angels were reading the newspapers and the power went out, because the Holy Ghost went to resurrect Jesus.
+
+How hell must have felt that day in the regions of the damned when the light came in, and the firstborn of the church, the Firstborn, came into existence in the bowels of hell. That must have been something for hell to behold.
+
+The Bible calls Him the firstborn of many brethren. It must have been something to behold when the first new creation to ever come into existence came into existence at the moment the Holy Spirit recreated Jesus' spirit when He resurrected Him.
+
+I can imagine what happened later when Jesus rose from the dead, walked the earth, went back to heaven, got glorified, came back, instructed them, went back, and told them the Holy Ghost was going to come.
+
+One hundred and twenty people were in the upper room waiting for the promise from the Father, the Holy Ghost that would give them power. The 120 included Jesus' mother in the flesh. If you let me get religious, the mother of God was in the upper room with the other disciples waiting to get filled with the Holy Spirit from her own Son.
+
+If you are Catholic, I would be a devout Catholic and do what Mary did: follow her to the upper room and talk with tongues. Because on the day of Pentecost, the Holy Ghost came like a mighty rushing wind. At the moment they were born again, He filled them with the Holy Ghost, and there was Mary, the mother of Jesus, with the rest of them, speaking with tongues as tongues of fire, upon the entry of the Holy Ghost, sat upon the church that day.
+
+Oh, I would be a good Catholic. Mary talked with tongues. If you are going to be a good Catholic, you have to do it too.
+
+I can just see the devil saying, "That guy really gave me a bad time for three and a half years. I have never seen anyone like Him since Adam. He went around claiming victory everywhere the soles of His feet went, doing miracles, proclaiming Himself to be the Son of God. I was sure glad when that crowd listened to me and I incited them, and they killed Him. I thought He was gone."
+
+Then He resurrects and goes back to heaven. So the devil thinks He is gone again. All of a sudden the Holy Ghost comes into the earth, and while the devil watches, 120 new creations come into existence right before his eyes, and they look just like that first One.
+
+So he watches them real close to see what they are going to do, and sure enough, they run all over Jerusalem doing miracles, acting just like the first One.
+
+The same power that raised Jesus from the dead is mighty toward us. The same power it took to resurrect Him works when you bow your knee and say, "Jesus, come into my heart." He comes in, takes your stony heart out, takes the old nature out, and gives you His.
+
+He gives you a nature way down in the depths of your spirit that is free from sin. He may have left you in the old body. One day there will be a sound of the trumpet, and it will be glorified. You will get one that looks also like Jesus' body.
+
+Maybe your body will give you fits, but that new nature He has put into your spirit has freed you from sin.
+
+I have good news for you. Your body does not have power to rule over you. You have power to rule over it.

@@ -1,0 +1,406 @@
+# The Teacher Bears Witness of the Truth
+
+## Jesus' Glory Is the Finished Work He Gives to Us
+
+Let us open to John 17, and then we will be in Romans 5 again, passing in review.
+
+Hallelujah.
+
+We have been talking about God's glory. When I slipped into the Spirit and saw God's glory for a moment, it was us giving Him all the glory, in particular the Lord Jesus Christ, all the glory, out of the born-again spirit, as much as a person could give Him glory.
+
+I saw Him in a glorified state. Jesus said He glorified the Father by finishing the work the Father sent Him to do. That is how we glorify Jesus: by finishing the work He sent us to do.
+
+Arnold Schwarzenegger's glory was his body. He pumped it up until that was his glory. That is what he had glory in, his body.
+
+Last Sunday we mentioned a computer fellow. He could crack the FBI's main banks, get inside, plant a virus, or pull the information out. That is his glory. He may have one sock higher than the other and carry a pencil pack all the time, but that is his glory. He can crack the FBI's internal security system and pull information out or plant a virus. That is his glory.
+
+Arnold Schwarzenegger's glory was his body.
+
+What is Jesus' glory? He says, "My glory I give unto you." What is His glory?
+
+He finished the work His Father sent Him to do. He redeemed you and me. His glory that He gives to us is everything the Father has made Him and everything He has redeemed us from. The work the Father gave Him, He finished, and He has given His glory to us.
+
+Hallelujah.
+
+## A New Layer of God Brought Repentance for Blaming Him
+
+I am getting excited because I am finding that with God, you peel layers off Him like you peel an onion. You peel off the outer layer, and there is still another layer. You peel that off, and there is still another layer.
+
+It was not until this glory limb that a layer came off God that I had been wanting to understand for so long. A layer came off God from this glory limb that I had wanted to understand about Him, even in areas where we have cliches when we teach. When I say cliches, I mean we say everything everybody else is saying. You get a quickening from those sayings. You know they are truth, but you do not understand the power of them or how they work.
+
+All of us operate that way to a degree.
+
+But there were some things I wanted to know about Him. I told you that He visited me and said some things and began to clear them up. It would be almost impossible to draw anything else out of this well at this moment, because it landed on me with such an impact of power that whenever I get very far into the Spirit, I have a steady stream of tears. I have not been able to clear them up.
+
+I have been crying a lot. One of those streams is repentance. You might say it is a form of intercession, but to me it is repentance, because with this last layer that was peeled off God, I had to repent for a certain light I had cast Him in.
+
+I repented very severely for even thinking He had anything to do with certain things.
+
+He began to tell me. When I tell you He tells me something, I do not do it lightly. After twenty-seven years, I know when He talks and when He does not.
+
+He told me, "Because I am God, I have been getting the blame for a lot of things. I get the blame for children who are not healed. I get the blame for this. I get the blame for that, because I am God. Because I am God, I can do anything."
+
+"See, You are God. You can do it. If You wanted to heal all those children, You could. You could do this. You could do that."
+
+Because He is God, He gets the blame for a lot of things He cannot do.
+
+He said, "You are tired of the twisted children, the white eyes, and all of that."
+
+I do not mean occasional healing, or even ten or twenty in a lifetime. I am talking about a banquet table of God being laid out for the people He has delivered, for the people for whom He glorified Himself. I am talking about laying out a banquet table and calling the world to come and eat, just like Jesus did.
+
+He said, "You are tired of the white eyes of babies who cannot see, the twisted bodies." In language He could use to talk to me, He said, "I am tired of it."
+
+Now, you know God does not get tired. He does not. But in my human terms, He caused me to understand what He thought about it.
+
+He said, "It is not I holding Myself back from these. I am tired of the church holding Me back with their will, keeping Me from stepping on the inside where those kinds of things take place."
+
+When that onion peel came off, when one more thin layer came off so I could see another layer of who and what God is, it hit my spirit with full impact. For that moment in time, I understood that mystery: He could not do it. He could not do it because we were holding Him back in a place where He could not.
+
+The deepest repentance came in crying, that I had even cast a shadow on God, as if there was some reason we had to get Him to do it.
+
+I did not die for those children. You did not die for them. He did.
+
+I do not know how many times He is going to bring me through this or how many times I am going to say it. But I will do it as many times as He will not bring anything else back except this, until we start to get it.
+
+## Free Will Is the Most Protected Attribute God Gave Man
+
+The most revered attribute you and I have, since the day your life was breathed into you by God, is your will. I am talking about the day your spirit was born of Him. I am not just talking about you; I am talking about Adam too.
+
+God breathed into him. Jesus said, "The wind bloweth where it listeth, and thou hearest the sound." The day you accepted Him, that same word for the breath of God, that life, was created in you from God's Spirit. You were not created; you were born.
+
+Do you think God is dependent on a creation He created? Where do you think air came from? It is an element. It is one of those things the Jews gave observance to, days and holy days, something created. But now He says, "Why do you do service to those things which by nature are no gods?" You now have His nature, and you are His son.
+
+Do you think God would be dependent on a creation of His? Do you actually believe He breathes? You do. You breathe. But you have a natural body that burns oxygen, and both the body and the oxygen are His creation.
+
+Your spirit was born of Him. Believe me when I say your spirit is not dependent on air. He was using symbolism to say that from the very depths of His being, the life now in you was born. God breathed, and you were born.
+
+The attribute you possess that is probably the highest order He could give any creation is the free moral agency of your will. He gave it to the creation before you, when Satan used it, and He gave it to our creation.
+
+The most protected attribute you have is the free moral agency of your will. If God were going to stop anybody, He would have stopped Adam's walk to the tree. Then millions of people would not be in hell over your right to raise your hands and worship God, or choose Him or not choose Him.
+
+We are beginning to understand His will.
+
+## Sincerity Alone Does Not Give God Access Past the Will
+
+He answered this lifelong question, and this is the point I am coming to now.
+
+Here you have a person who is consecrated. This person is sold out. For the longest time I thought, "If a person is sold out, totally sold out to You, should not the merit of them selling out be enough for You to come to them and get their doctrine straightened out because they love You so much?"
+
+Do you want to know His answer?
+
+He said, "What makes you think I did it?"
+
+Here is where the problem comes in. You get someone like the apostle Paul breathing out threatenings and slaughter, hailing men and women, throwing them into prisons, scourging them in every synagogue, causing them to be put to death, probably by something like kangaroo trials. He was killing and killing.
+
+That is why, in his own testimony, he said, especially near the end of his life, "I am not meet to be called an apostle." Good Lord.
+
+Stephen gave God what He needed. I am sure Stephen could not have done what Paul did for the foundation of the Church. But you can rest assured Stephen got Paul's reward.
+
+Stephen gave his life in intercession while Paul held the young men's coats as they stoned him to death. God used the intercession Stephen made: "Do not lay this to their charge." He used the authority in that intercession to knock Paul down.
+
+"Who is this? You blinded me. Who is this?"
+
+"I am Jesus, whom you have made it your life's work to persecute. I am He. It is hard to kick against the pricks."
+
+Someone says, "That was a sovereign visit of God because Paul loved God."
+
+There are a lot of people in this world who serve a form of godliness and are not even saved, and they love God, per se. If that gave Him the right to drop on them and visit them alone, then He could drop on everybody.
+
+If God just sovereignly said, "I like this guy. I think I will drop on him, knock him down, visit him, and get him saved because I like him," then He would be a respecter of persons. Or else He would have to drop on every sinner who came to the age of accountability, knock them on the floor, visit them, blind them, and do everything else necessary to see that they were saved.
+
+Stephen gave himself to intercession.
+
+It is not that Paul did not have all the avenues. He watched the miracles. He heard the preaching. He heard the teaching. The Holy Spirit moved as hard as possible through every avenue He said we could use to approach another human being who has a will and say, "Look, Jesus is Lord," and then they do with what you say as they will.
+
+It is not that Paul was not hearing. Thank God for Stephen.
+
+God said to me, "Can I heal you if you do not want to be healed?"
+
+I said, "No."
+
+"Can I save you if you do not want to be saved?"
+
+I said, "No, You cannot."
+
+He said, "But if somebody else prays for you, I can do what they ask. That gives Me a right to visit you and keep visiting you if necessary, even to let you go to hell and snatch you out because of the prayers at the last moment. But if somebody will not turn loose of you, I can honor that. Even after I snatch them out of hell, it still has to be their decision."
+
+I do not know very many people who would not make that decision.
+
+## The Holy Spirit Is the Teacher Who Forms Christ in Us
+
+"Brother Roberson, do you know how to yield yourself to God until your will becomes His?"
+
+Oh yes, I do. Yes, I do.
+
+I received Someone whose Great Commission is to guide me into all truth. He glorifies Jesus by receiving what is His and showing it unto me. Not only that, He has God's whole plan for my personal life. He has come to me individually, wanting to represent me before the throne room of God as He who has come to reveal Jesus in me, work His plan, and reveal His mysteries. He even sent a language to pray Him out with if you are too dumb to do it yourself.
+
+Even with all of that, He will approach us, even when we have the revelation of it, and we say, "I choose pleasures, exaltation, and the acceptance of this world, worldly people, and worldly things, more than I choose His walk."
+
+You are not going to learn anything from somebody who does not know anything. If the Holy Ghost is not teaching the preacher, then you want to see me? Sometime when a dog is barking outside your house, throw scalding water on him. You will see me exit like a scalded dog.
+
+You cannot learn anything from somebody who does not know anything. The Holy Ghost is not their teacher.
+
+I am finding out.
+
+Jesus said, "Call no man on this earth father," because after you are born again, you really only have one Father. I thank God for my first father. You would not be here otherwise. But now that you have been born again, you are in the process of becoming just like your eldest Brother in the body of Christ, in His humanity, who is Jesus. Soon you are going to have a glorified body made without hands.
+
+Hallelujah.
+
+We really only have one Father now. The life my other father gave me is in the process of vanishing away. It is already gone out of my spirit, and it will be gone out of my body in the next fifty years. Does it make any difference to me? Not a bit.
+
+We only have one Father.
+
+Jesus also said, "Call no man master," which is another word for teacher. Any man who is really teaching you from the Holy Spirit will readily tell you some of the things God says and some of the things He teaches. You know you could not know them any other way.
+
+Really, I am not your teacher. I am just the one who passes on what I have been taught. If I were your teacher, then I would have originated it. But in the sense Jesus was talking about, there is no other Teacher but He who has come down from heaven to take the place and guide us into all truth and teach us.
+
+We teach as He gives us on different levels, until we catch hold and the Holy Ghost also begins to confirm and become our Teacher. But if what we are being taught has not been given to the Church by the Holy Spirit in the revealing of Jesus, then you are not sitting under a teacher.
+
+Hallelujah.
+
+## Praying in Tongues Prays the Mysteries Until the Spirit Understands
+
+I thank God for stumbling onto that revelation gift of praying in tongues.
+
+Hallelujah.
+
+What was one of the first revelations I got from the revelation gift of praying in tongues? One of the first things I got was the revelation that it was a revelation gift, and that the mysteries it said we speak are the same mysteries hidden in God from before the foundation of the world.
+
+> For he that speaketh in an unknown tongue speaketh not unto men, but unto God: for in the Spirit he speaketh mysteries.
+
+Those mysteries were hidden on the other side of spiritual death: the understandings of the mystery of everything Christ is in you, to you, and through you, the hope of glory.
+
+Even though, at the time of prayer, it is in a language you do not understand, rest assured that every time you get enough of one of the mysteries of Christ prayed up into heaven in tongues, it will be illuminated in your new nature, your spirit. Then it will start coming up to your mind, and then you will be able to confirm it from the Word of God that you know or are learning.
+
+How many times have we taught something, and down on the inside you already knew that what we taught was true, even though you had never heard it or had any teaching on it? You could verify it and say, "I know it is the truth. I know it hurts, but I know it is the truth."
+
+When I got back by the door, Gary said, "Well, that really hurt. I know it is the truth, though. But my God, how can you hold God back?"
+
+That is one of those statements. He is God. He could step on the inside and heal all those children if He wanted to, and He is saying we are keeping Him out.
+
+Gary said, "What more does He want? We are fasting, we are praying, we are doing this and that."
+
+Nevertheless, however much proof we want to offer in support of our theory, the position is settled in what He has done. He said He finished the work, and He said, "These signs shall follow you." If you set anything between that, you are not going to see the end.
+
+I do not care what excuses you are offering up. He still said they are free, and you are free. If you are ever going to get there, you will have to accept the fact that when He can heal them, He will.
+
+Is anybody having a good time?
+
+## The Finished Work Means the Sick Were Healed Before They Came
+
+I know this is a tough teaching, just like pound and provision is a tough teaching. But until we accept the fact that it is finished, that the law of the Spirit of life in Christ Jesus, that new nature He has given us, has canceled the law of sin and death, until we accept that He has set us free from all the dominion of sin and all that sin caused, we will not settle it down in our spirit.
+
+It is finished. All the sick children they can haul into our meetings were healed two thousand years ago.
+
+We must go into God where they are healed, so we can present them to God in the glory Jesus presented them in on the cross when He finished the work. They are healed.
+
+Well, I spent a good deal of time repenting. I did not do it like I was working it up.
+
+"Oh, I am sorry. I am sorry, God, that I knew You were God and could really do this if You wanted."
+
+He said, "Oh, so you are saying I want all those people in hell, because I could have done that too. I am kind of a tyrant who gets a headache maybe every twenty millenniums and wipes civilization out. Maybe I just like to create something, then create something to destroy it to see if they like Me or not. Maybe I am some sadistic kind of creator who loves to play little games, throw this bunch into hell, and keep this bunch out."
+
+No. It was not, "I am sorry, God. I guess I misjudged You a little."
+
+No. When that onion peel came off, it just gushed out of me. I said, "I am so sorry. I am so sorry. Really, I know You are not like that. We all preach good things about You, but way down inside we wonder. I am so sorry."
+
+I know He is not like that.
+
+Even in counseling, when somebody would lose a baby, I would say, "Know this much about it: if you will not blame God..." I know they prayed and confessed and did all the things they were taught, and the baby still died. For a man's mind to survive religion, we usually have to transfer the cause from us to God.
+
+"Well, He had a greater plan. He was lonesome for the sound of children's voices in heaven."
+
+Yes, right. He must be for the mass extermination of whole cultures in our generation and all the children with them. He must be, huh?
+
+I said, "I am so sorry I ever cast You in that light. I want You to know I will be about Your business, my Father. I want You to know I am going to learn how. I am going to finish my course. I want You to step inside where You can do those things. Hallelujah. I do not want to hold You back. All my life, I knew one day I would get there where I would not hold You at bay from the things You want to do, even though I did not understand it. But I am beginning to now."
+
+Hallelujah.
+
+I do not think anybody but the Holy Ghost can bring you there.
+
+## The Holy Spirit Glorifies Jesus by Showing Us What Is His
+
+When I saw Jesus glorified for just a moment, it was the most wonderful thing. I cannot explain how it felt in my spirit. The only thing I knew was that when human beings who are born again totally glorified Him in our midst, everything He accomplished on the cross was possible at that moment, at that hour.
+
+What did He say about the Holy Spirit? "He is with you, and He shall be in you." He went on to say, "He shall not speak of Himself, but He will glorify Me."
+
+Who is He going to glorify Jesus to? He is going to glorify Him to you and me.
+
+How is He going to do that? How is He going to let us see His glory by glorifying Him to us?
+
+John 16 says:
+
+> He shall glorify Me: for He shall receive of Mine, and shall show it unto you.
+
+The only reason we can say these words today is because we found out how to loose the Holy Spirit in us through that supernatural language, as far as a revelation gift is concerned. The more you pray in tongues, the more you edify yourself. The more you build yourself up on your most holy faith, the more the Holy Spirit will be able to glorify Jesus unto you.
+
+It makes me want to stop right here and just pray in tongues the rest of the day and into the night. It is all right. I have time.
+
+Right now we are speaking theology. Let me try to bring you to Him wanting us in Him and Him in us again, and see if we can take this a little further.
+
+To tell you the truth, without passing in review, it is almost impossible to take the next thoughts. These tapes, I do not think you could listen to them enough to get them in you. It took me twenty-seven years.
+
+Hallelujah.
+
+## John 17 Prays That We Would Be One in the Glory Jesus Gave
+
+In John 17, we were working on verses 19 through 22.
+
+Hallelujah. Oh my. I thought I was going to go in there and start weeping again for a moment, seeing Him in His glory. To have Jesus revealed like that, to see what is possible to you, is almost too much for a human being to take.
+
+Words can hardly get it out. Can you imagine me trying to teach this through a translator? After a while they would just be standing there looking at me. With a message like this, you have to make the translator understand it before you teach it, teach it all to him strong, and then as you get up, he is able to run ahead in his mind to make that statement clear enough to understand the next one.
+
+Hallelujah.
+
+Let us look at His glory again.
+
+In verse 19 He says:
+
+> And for their sakes I sanctify Myself, that they also might be sanctified through the truth.
+
+He was separated by the truth, sanctified by God. Then He says:
+
+> Neither pray I for these alone, but for them also which shall believe on Me through their word.
+
+Here is where He prayed for you and me to see this. I bet the angels are jumping up and down because His prayer is being answered here.
+
+> Neither pray I for these alone, but for them also which shall believe on Me through their word.
+
+That is us. This is what He prayed:
+
+> That they all may be one; as Thou, Father, art in Me, and I in Thee, that they also may be one in Us: that the world may believe that Thou hast sent Me.
+
+I like this because He wants us all to become one as the Father is in Christ and Christ is in the Father. He wants us to become one in Them, and somehow that is going to cause the world to believe that God sent Jesus.
+
+Notice verse 22:
+
+> And the glory which Thou gavest Me I have given them; that they may be one, even as We are one.
+
+How is that?
+
+> I in them, and Thou in Me, that they may be made perfect in one; and that the world may know that Thou hast sent Me, and hast loved them, as Thou hast loved Me.
+
+I have never really heard this Lord's prayer taught. Not "Our Father, which art in heaven," but the prayer He left this earth on. No wonder. When God finally broke it open for me, one of the first things He said was, "Do you understand where you missed it? You always looked at this prayer with deity in mind, not humanity."
+
+We tried to look at being one in God as Jesus is one in God, and we always looked to deity more than humanity in that statement. But when I understood we were looking at it wrong, the rest began to open up.
+
+That included John 14, where He said, "In My Father's house are many mansions," or many rooms. "If it were not so, I would have told you. I go to prepare a place for you, and if I go to prepare a place for you, I will come again and receive you unto Myself, that where I am, there ye may be also."
+
+He was talking about Himself occupying one of those rooms in God, in His humanity. He said, "I go to prepare a place for you." He went by way of the cross and made the nature He had available to us by taking our death and the penalty for it, so we might be quickened together with Him in His life.
+
+In My Father's house are many rooms. It is not that in reward and all of that He does not have a place prepared for us, great reward, a place with the Father forever. I am not talking about that place. You would never get that place if it were not for this place.
+
+He is saying, "In My Father's house are many rooms. If it were not true, I would have told you. In My humanity as a Son of God, I occupy one of those positions. But I go away to the cross, and I will prepare a place for you. Then I will come again and receive you unto Myself, that where I am in My glorified humanity, I will receive you unto Myself, and where I am in the Father in My humanity, you will be also. That new life will be in you, and you in Me. I got My life from the Father. I am in the Father, and He is in Me, and the works I do, you will do."
+
+Was I yelling a little?
+
+Now I am understanding it. At that place He held with the Father in His humanity, where I am, you may be also.
+
+I liked what He said about the servant: "If any man serve Me, let him follow Me; and where I am, there shall also My servant be." Let him become My servant, My slave. The man who becomes My slave, where I am, there will My servant be also. I like that.
+
+Understanding that He is talking about His glorified humanity, that position He holds with the Father as a Son, that is the position He received us to. Now He says, "My glory I give unto you."
+
+The Father gave Him His glory, and He finished His work with it. "My glory I give unto you," He said, so the world will know that I am Christ, the Savior who has come into this world.
+
+## Romans 5 Explains Oneness Through Adam's Death and Christ's Life
+
+Let us understand this in Him a little more. Go to Romans 5 one more time.
+
+Remember in John 17:21 He says:
+
+> That they all may be one; as Thou, Father, art in Me, and I in Thee, that they also may be one in Us: that the world may believe that Thou hast sent Me.
+
+Let me show you the oneness He is talking about.
+
+Romans 5:16 says:
+
+> And not as it was by one that sinned, so is the gift: for the judgment was by one to condemnation, but the free gift is of many offences unto justification.
+
+Verse 17 says:
+
+> For if by one man's offence death reigned by one...
+
+All of us were baptized into the first man Adam's death by that one offense. We all received the same death he had.
+
+> Wherefore, as by one man sin entered into the world, and death by sin...
+
+In that one man's baptism into death, all have sinned. The whole human race was baptized into the death of one man, Adam, and we all became one with him in his death. I do not have Adam's human spirit; I have my own. But what I inherited from him in oneness was the death he had. The whole world was baptized into that one man's death.
+
+Well, He turned it around.
+
+If you want to understand how you are one in Him, and Him in you, and you in the Father, you have to understand this: as the Father had life within Himself, He gave to the Son to have life within Himself, and the Son gave to you to have life within yourself.
+
+The same way we were baptized into the first man Adam's death, all of us who accepted Jesus Christ have now been baptized into His life. We have become one with Him in that life.
+
+Where did He get that life? As the Father had life within Himself, He breathed it to the Son, and the Son had life within Himself. Then He gave it to us.
+
+We were baptized into His life. If we were baptized into His life, we became one with the Father, because that life came from the Father. We are now one with Christ as He is one with the Father, because we have been baptized into that life, which is the new nature we received when we were born again.
+
+I cannot stand it. I do not feel like I am going to make it.
+
+Look at verse 17 again:
+
+> For if by one man's offence death reigned by one; much more they which receive abundance of grace and of the gift of righteousness shall reign in life by One, Jesus Christ.
+>
+> Therefore as by the offence of one judgment came upon all men to condemnation; even so by the righteousness of One the free gift came upon all men unto justification of life.
+>
+> For as by one man's disobedience many were made sinners, so by the obedience of One shall many be made righteous.
+
+Then he went on to say:
+
+> Moreover the law entered, that the offence might abound.
+
+They were spiritually dead, and they were given a law that said, "Thou shalt not covet. Thou shalt not commit adultery. Thou shalt not steal. Thou shalt not lie." Of course, they could not keep it.
+
+What did that cause? It caused the offense to abound.
+
+> Moreover the law entered, that the offence might abound. But where sin abounded, grace did much more abound:
+>
+> That as sin hath reigned unto death, even so might grace reign through righteousness unto eternal life by Jesus Christ our Lord.
+
+So the mystery of "that they may be one, as Thou art in Me and I in Thee, that they may be one in Us" is this: by one man sin entered into the world, and death by sin. Now by one Man life has entered into the world, and we reign in righteousness through that life.
+
+We have been made one with the Father as we have been made one with Christ, as He has been made one in us and us in Him. At that place He secured in the Father, He came and received us unto Himself.
+
+## The New Nature Can Be Taught, and the Holy Spirit Brings the Power
+
+Now I have that nature with a capacity to understand the things of God. It is like a duck who thought he was a chicken, got down by the water, and said, "I just know I can do this." He jumped in and did it.
+
+I just know God can do it. I know He has done it.
+
+I have a nature that can be taught. Not only do I have a nature that can be taught, I have seen Jesus, and He is the One who carried the order for the services. Not only do I have a Teacher, I have a nature that can be taught. Not only do I have an example the Holy Ghost uses to teach by, Jesus, but now I know it is possible because I have His nature.
+
+So the third Person of the Godhead said, "I will come and be your Teacher, and I will be the power."
+
+People, what do you think the devil is fighting?
+
+What do you think would happen if the first truckload of children came in with the results of disease on them? They are all under ten years old, have not walked, are crippled, or have been smashed up by cars. Suppose this whole front was just laid full of them. Now I ask you: if Jesus came in and all the mothers were down on their faces wailing, what do you think He would do?
+
+What do you think He would do?
+
+He wants the whole world to believe. He wants the whole world to believe He is the One the Father sent, and He wants them to believe that by watching us.
+
+What do you think would happen by the time they carried all their children back to the relatives? What kind of next service could you have?
+
+When William Branham came out of the mountains from extended fasting and prayer, a silver-dollar-sized light appeared on the floor. An angel appeared in the light and said, "If you can make My people believe, all things will be possible, and no disease can stand before you."
+
+He came out of the mountains, and he still had patches on his suit. By his second meeting, people outran him to get to the meeting. In the courtyard, the crowds were so heavy that a young girl got separated from her mother and father because she was blind. He heard her crying.
+
+He walked right in the midst of the people. They did not know who he was. He had patches on his suit. She was crying.
+
+He said, "What is the matter?"
+
+She said, "I got lost. My parents are lost. We came to see the healer. Do you know where we can find the healer? I am blind, and they brought me to see the healer."
+
+He said to the girl, "Jesus is the healer," and laid his hands on her. Her eyes opened right there.
+
+Satan tracked him. He tracked William Branham like he tracked the apostle Paul all the days of his life and tried to destroy him. That is part of the drink.
+
+Jesus said, "Are you able to drink of the cup that I drink of?" That is what He was talking about. You are not going to get hundreds of thousands of people saved a month in one place and not drink His cup. If you are weak, you will not be able to take it. You will run like a scalded dog and find somebody to pet you.
+
+It is all right.
+
+I am finding out what it means to be in Him as He is in the Father, and I do not care. I have nothing else to live for.
+
+Go with me.
+

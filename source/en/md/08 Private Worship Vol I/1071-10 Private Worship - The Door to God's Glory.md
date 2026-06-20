@@ -1,0 +1,229 @@
+# Private Worship: The Door to God's Glory
+
+Won't you open up where we left off, around the fourteenth chapter of 1 Corinthians? I cannot give too many guarantees, but if we make it past that, we can be in Romans chapter 2. And if we make it past that, we can be in Romans chapter 8, virtually unexplored territory. We kind of took off around the fourteenth verse.
+
+Father, again, for the Teacher, we thank You. We thank You. In Jesus' name, amen.
+
+In this last conference in Brazil, I do not think He had ever prophesied through me as much as in that conference. It would be to one group, then another, then another, then another, until the whole building was harvested. The last thing was the people filled with emotion. I had never heard such wailing. I was up front.
+
+Last year, when I was walking across the platform and He said those things to me that Alan was talking about, part of the importance of what you know is how much you know God and how much you know truth. Wisdom, truth, and sound doctrine are things that get stronger, wiser, and more understood, supposedly, in these years between sixty and seventy, and eighty and ninety. That is when we really have the most to give, especially if the Holy Spirit is your Teacher.
+
+So when He said that, I realized some things were changing. When I accepted what He said, He began to minister to me that He had let me in, and that He wanted to have revival here. He has let me in on that since the day my vision would not fit in anybody else's, so I had to go and turn God loose in it. That is how we ended up over here.
+
+I thought, "Wait a minute. One or two good fasts, and we will just be in revival."
+
+I wished. One, two, three, four, five.
+
+But it is not coincidence that it is this city. This city has been the headquarters for doctrine, world movers, and they pretty much came out of here.
+
+"You want a revival here? You want a revival here?"
+
+His answer was yes.
+
+Then I could not understand my part in it, except that on the revival field I moved in the Spirit a lot. There were a lot of miracles. A lot of teeth were healed, eyes, all kinds of things. Overseas was the heaviest, but of course all across the United States, almost every state, I have been there.
+
+So when He said, "Go back," I thought, "Okay, I know what it is. It is because He uses me in miracles, and that is what He wants for a revival in Tulsa."
+
+But after coming up against everything that is here, both everything bad and everything good, it took me a few years to figure it out. Then He finally told me, "It will take everything you have learned, everything you know, and everything you have been through to win here."
+
+I bet sometimes you wished you had a better teacher than tribulation and trials. Usually, He pulls that out as the last resort, when we plunge past everything else. Then He offers us the Word to get out of something we got ourselves into. I would much rather listen the first time.
+
+He said it would take all the experience, everything I learned, and everything I know to win here. Of course, at first I was thinking, "That is not so bad." But now I think I am understanding what I am getting myself into.
+
+When He stopped me on the platform and said, "When I pull up, you pull back and stop, because what you know will eventually be more valuable than where you are," we might think in a revival of media, "Yes, this is true."
+
+So I began to pull back. This time I did not. This time I prayed for the thousand or more. I survived it, but I did violate what He gave me about how to do it, and I paid a little bit for it. But I am okay now.
+
+In giving Him what He wants here, when I understood that thoroughly, it was about five or six years ago, if you will remember, when God put the worship limb on. He gave me the worship key and put the limb on, and I went and locked myself up in a little room and broke into private worship.
+
+I remember running into someone who led worship, someone world famous, in a restaurant. He said, "Well, how much are you worshiping a day then?"
+
+I told him, and he said, "God, how could you do that?"
+
+Well, after a while, it was not very hard.
+
+When He first tried to give me the key, I remember slipping into a vision where I saw a pond and somebody threw a rock into it. One wave came, and the next wave followed it, and the next followed it.
+
+I said, "What is this?"
+
+He said, "The first one is a baptism of the spirit, like presence and power. The second one overwhelms the soul, a baptism of emotions. The third is geography. That is when it spreads out and baptizes the room you are in."
+
+I hardly knew what all this meant, because what was ahead of me was breaking into it. So I did.
+
+I will never forget, after having the experience with Him that I could not even talk about, I would try to explain what you are, what you look like to Him, and what you are worth to Him. When I saw what you were worth to Him, I did not know how to deal with it. I knew that when He loved you that much, He had to love me too, because He is no respecter of persons. I knew that.
+
+But when the baptism of geography came, people started running up in Brazil. A hundred and something came up, and probably three or four hundred of all who were there were preachers. I am not sure. But the people who came up were sobbing so hard. I did not just see that there. I was seeing that in a six-week meeting in Cleveland, Tennessee, because we could not stop. People were weeping and crying.
+
+I said, "I have not seen anything like this. What is this?"
+
+In that baptism of geography, there was an anointing connected with His love that was able to go in, destroy roots, pull strongholds down, and then replace them with His presence and healing. So I understood that to be a healing gift. Healings is plural, because it does not only deal with the physical anatomy; that one deals with emotional realms and strongholds.
+
+I saw Him do this. That anointing came. I looked for it everywhere and could not find it anywhere. I had never seen it before. It not only happened in the church; it happened in the prayer line. I would go to pray for people individually, and it would happen.
+
+I knew the only thing I had to do with it was obedience. It came.
+
+How many remember when I walked out one day after having the vision of the big medieval door? It was a big wooden medieval door with a great big drop latch. A couple of men would have had to open it up. The door was that big.
+
+I think the next time I saw it, it was cracked about this much, and the glory of God was just flowing out the back of it. It was coming all around the door and out the door, even though the door was more than three-quarters closed.
+
+I was looking at this and said, "What is this?"
+
+He said just a couple of things: "This is the place where preachers quit falling from. And this is where revival lives."
+
+Well, you know me. I want to know what kind.
+
+It is not just the miracle anointing dropping in a collective meeting where the gifts will come. I had that for years and years. They come, and it seems like when you go home, they go home. I almost never got any results in the hospitals. They really got them, as they would say, when the anointing would come in.
+
+God has been wanting to take revival out from four walls for some time. He would really like to get into some of the hospitals, especially if there are twenty little kids all braced up just to get across the floor. Do you know what He would do to a city if twenty little kids walked out of there? Who is going to explain that away?
+
+It is not enough for me to know that is possible. It is not enough for me to know it is within range. I am not taking any excuses. I have got to have it.
+
+I tell you what, if I was born in braces, I would want to come here. I would want to come here.
+
+I go all the way around back to this door, and that is when He began to talk to me about what is starting to happen now. What better time than a Wednesday night to catch you up?
+
+I am looking at this glory, and He told me that is where revival lives. That was really good. He also said that is where preachers quit falling from. I knew the love of God had to do with it. What got me to the door was praying in tongues, which presented the key of private worship. Then private worship did for me what praying in tongues could not do, and private worship cannot give you what praying in tongues can. It all works together. It is a walk of the Spirit.
+
+So when He introduced me to it, I knew that somehow breaking into His presence had something to do with revival on the level I had broken into. He would fall on people, and they would weep and cry.
+
+At this time, He started explaining to me a little more.
+
+He said, "I also said revival is behind the door. Why?"
+
+That is when He started teaching, and I was waiting for this part.
+
+He said, "What makes you think that an anointing that would reach beyond church walls does not have to come from the same place you broke into in private worship, where you could get past your strongholds, go after the root, destroy them, and at the same time break down and weep and cry, not because you were just getting really blessed or having a crying spell, but because it was supernatural? It was an emptying out and a filling up."
+
+It was not just our crowd. He would come out of every crowd we jumped in front of in that season.
+
+I said, "What is this?"
+
+He said, "That is an anointing that comes, destroys the roots and the strongholds as much as they will let it, empties them out, and fills them back up again with peace."
+
+I had never seen an anointing like that operating anywhere.
+
+So what does that have to do with miracles?
+
+He said, "Don't you understand? You will see some miracles in services, but hardly anybody sees them in hospitals and children's homes. Why? Don't you know that if you continue on the path you are going, adding fasting and prayer to worship, and of course tongues is in place, that same kind of presence can alter to precede a miracle by going in and annihilating whatever was keeping them from getting it?"
+
+Not as much tongues as I would like. You get too busy. But worship, worship.
+
+What it had to do with miracles was that same kind of presence. A person just cannot get their miracle, and you cannot give it to them in there. People in the children's home, people who have not been saved, people who are just okay Joe who goes on Sunday, lying up in the hospitals--I do not see more and more of them healed.
+
+I said, "What are You trying to show me?"
+
+He said, "With you receiving that kind of presence, don't you know that it can also alter, if you keep going, to precede a miracle by going in and annihilating whatever was keeping them from getting it?"
+
+You might say, "Well, little kids do not have that."
+
+No, they do not. A preacher still cannot get them healed for the greater part. Why? Not only does He go and annihilate what is holding them back, but there is nothing like the love of God and really getting to know Him to annihilate whatever is holding you back.
+
+"For to him that believeth, all things are possible."
+
+I can tell you this: if I had not broken into fasting, I do not know if I would have been able to stay in the private worship closet.
+
+Everybody just loves that term fasting. We think, "At least we will lose weight when we fast."
+
+But then you gain it back twice. You can just look at a carrot and gain a pound. Your metabolism thinks it is a snail. Why? Because you just went through thirty or forty days where your body readjusted itself because you were starving to death, so it stored everything. The trouble is you cannot make it quit when you start eating.
+
+"Stop it now."
+
+The only way you can do it is recalibrate your hypothalamus. You have to reset it. The only way you can do that is by exercise and eating right. Once you set it and hold the line there, you will know how much you can eat at that point and how much exercise you need.
+
+See, I lost forty pounds. Besides fasting in the presence of God, you might as well take advantage of it, don't you think? But what you have to do is exercise and eat old ten-percent-flavor chicken, vegetables, and fruits. You can get some pretty flavorful plates out. But even at that, you still have to learn how much you can take in a day and how much exercise you need to hold the line.
+
+If you hold that line for a few months, eventually your metabolism will speed itself up again. You can go back to eating a little more and a little more and still hold the line at your new weight.
+
+Nevertheless, it was fasting. I can remember the discipline it took. You should see me make promises to God and clear my schedule.
+
+"I am going to lock myself up in this room."
+
+You lock yourself up, and pretty soon you wish you had not cleared your schedule, so at least you would have an excuse. The lawn grows at least three inches in four days while you are fasting. Of course you need to break it and go mow the lawn.
+
+Now my body starts negotiating with me even before I fast.
+
+"Why don't you start January 1?"
+
+Then I get there, and it says, "Well, the holidays are coming. Christmas. Just let it up. Just leave it alone. Just quit it."
+
+The first time I locked myself up with myself--no food, no nothing--Rosalie was glad I was out of the house. I locked myself up, and the only one in the room was me. My first longer fast, I found out I did not like me very much. I wished I could get away.
+
+The discipline it takes to maintain your flesh through those seasons. But I found out I needed the same discipline. Because if I thought the devil was landing on me for fasting, you ought to see how he lands on you when you are tuning up with God in your spirit.
+
+Had I not had that experience with the flesh, I do not know if I would have whipped everything in the private worship closet to stay in there. That is how mad it made the devil.
+
+I did not think he could come in there when I was worshiping God and upset my apple cart. He tried. Some of you remember those series I did on that.
+
+I would say, "Glory, hallelujah," and it would just crawl flat on the floor like a pancake. I needed a spatula just to get the words up to heaven.
+
+"Glory."
+
+The harder I tried, the more raging my emotions became. The harder it was to lock myself up in there. Finally I thought, "I had better read something on this."
+
+So I went to popular books. "What if you cannot feel anything?" Most of them just said, "You did not get into the Spirit."
+
+I am thinking, "All hell has parked on me, but I will not quit worshiping Him. What is this? I did not get into the Spirit?"
+
+Because I told Him what I was going to do, I made a promise. I landed on the floor right over there and told Him I would do it. I did not care what hell did, what anybody said, how bad it got, or whether it looked like it was working or not. I was not going to come out.
+
+All hell stacked up on me, and it looked like it gave its best shot. Then I got through that, and all of a sudden it started lifting.
+
+I said, "Those books said I was not getting through, but it was quite the contrary. I was getting through more fervently than ever before, because hell threw everything at me to stop me, and it could not."
+
+I was not getting through less. I was getting through more. That is when it began. That is when I had the experience with you. That is when the worship and the weeping began in a year or two to follow that.
+
+Now I am understanding there is a presence. As of yet, I do not know exactly how it is connected with the door, but I do know there is an anointing available. Not only will it work in here, but it will work out there in the hospital, the children's rooms, everywhere.
+
+When God moved so powerfully in Brazil this time, we saw some miracles we had never seen before. One was the eight-year-old girl born with that disease where you do not grow anymore. We prayed for her on Saturday. Oh, I felt Him come, just like in the worship closet.
+
+I think it was the following week when the conference started and we saw the people again, we found out that from Saturday to Monday she grew three inches, four fingers. If she had been here before, she would have been here; then she would have been here.
+
+The door was only cracked, but He said, "There is revival behind that door."
+
+Now I am beginning to understand how the power is going to leave the church and the confines of it and go to the hospitals and anywhere else you want to take it. But it is not just resident on a gift like the workings of miracles, which has been in the public ministry for a long time.
+
+Like I said, there was hardly any use going to the hospital. Nothing hardly ever happened. That is what I hated about going to the hospital the worst: when nothing would happen. Once in a great while, maybe something would happen. It sure did not look like the New Testament.
+
+What He did was open up my path. I know what to do.
+
+If you do not mind, I would kind of like to lean on all of you a little. This is unexplored territory. So do you mind standing up a moment and extending your faith toward me?
+
+How about entering into something with me? Any time He brings you to me, I will pray. If I cannot pray right at that moment where I can get away, as soon as I do, I will. But any time He brings me across your mind, will you stop and thank God and worship Him that we are entering into this and that we are going to fulfill everything He has asked us to do?
+
+As you set yourself in agreement with me, Father, as I do for them, they are going to position themselves for me. Any time You need to solicit help on this road we are going or receiving, they are all willing to stop, give You their authority, and speak good things.
+
+Father, I will do the same for them. You pulled me off the road. This is the whole reason I live. The whole reason is to receive this for You.
+
+So, Father, I surrender myself again. I know that true surrender is the spirit of holiness, as we do not want to be where we are and do not want to stay where we are. Father, I surrender myself to You as much as I know how. For this, I give You all the praise, all the honor, and all the glory, in Jesus' name.
+
+And everybody said, amen.
+
+Can you imagine an anointing that will prepare them for a miracle the same way it would track down the roots and strongholds that were keeping us in turmoil, unforgiveness, and strife? Can you imagine an anointing that comes and does that?
+
+I can hardly imagine it, because I have never seen it. I hear in history of people who had it. Wigglesworth seemed to. But then again, this is now, isn't it? And what a time of media we live in. The devil thinks we are going to hide this under a bushel. Think again.
+
+"This little light of mine, I am going to make it shine."
+
+These little kids, you know. Hallelujah.
+
+I will tell you what I want to do. I think this grace is on me. I think it is on me.
+
+Besides you and your heart and faith standing with me in this area we have been talking about, if you have anything wrong in your body, you need to get it out and hold it up in front of Him, as if He did not know.
+
+If you want to begin to step into this unearnable grace, it cannot be earned. It cannot be worked for. But it can be received. If you want to kind of make this journey, though I would not know how to word it, then His grace is here, as it has been so many times, to help you.
+
+Of course, everything cannot be done for you. It is not that there will not be a fight. But where He makes the difference is this: He gives you this grace, unlike before, where you would get beat out of it and give up. You might get beat out of it and even give up, but you will come back. That is the level of grace that is here. You will come back and do it again until you win.
+
+So do not be hard on yourself if you stumble around a little bit. Just pick yourself up again. If you have to do it five times, do it five times. That is what this grace is. If you do not make it somehow, you have the grace to come back and do it again until you do.
+
+What are we talking about? About you praying, spending time with God, and doing whatever He is calling you to do right now as you take a step into the Spirit.
+
+It seems like something has come together. At least now I know what to do. I am not just seeking. I am not just seeking. I have a target.
+
+So if you want prayer to impart this grace to you, there is a lot of peace here. Then come up. Get in the line.
+
+Here it comes.
+
+Father, we knew it had to be another step into anointings of some kind. Now I am starting to see. So Father, right now, the grace of this, that no-quitting grace.
+
+Jesus, I worship You and glorify You, and I receive this. I receive this, in Jesus' name.

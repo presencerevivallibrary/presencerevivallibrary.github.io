@@ -1,0 +1,393 @@
+# My Debt Has Been Canceled
+
+We are studying, "Sin shall have no more dominion over you." We will be in 1 Corinthians 14, but we left off around Romans 8:13. We will pass in review briefly and pick it up where we left off.
+
+I feel the Teacher so strong. Hallelujah, Jesus.
+
+We found out that Romans 7 and 8 are the pivotal point for the entire Old and New Testaments. The whole Word of God revolves around these two chapters because the change of covenants was made between Romans 7 and Romans 8.
+
+The seventh chapter deals with an unregenerate man who was spiritually dead and received the law. The law said, "Thou shalt not commit adultery. Thou shalt not lie. Thou shalt not bear false witness." Because he was an unregenerate man, he could not keep the law. The conflict he suffered was recorded in Romans 7.
+
+Romans 8 switches. In Romans 8:1, Paul says:
+
+> There is therefore now no condemnation to them which are in Christ Jesus,
+>
+> who walk not after the flesh, but after the Spirit.
+
+He is saying that now that you are born again and have become a new creation, there are no more condemning sentences. The flesh, working by the law, can no longer overpower your mind and make you do what you do not want to do.
+
+> For the law of the Spirit of life in Christ Jesus
+>
+> hath made me free from the law of sin and death.
+
+Romans 7 and 8 are a one-hundred-percent phase shift. To understand one, you must understand the other. All the way through Romans 8, every time he talks about a man walking in the flesh, he is talking about a man in Romans 7 who was unregenerate and received the law. Every time he talks about a man walking after the Spirit, he is talking about a man who has been born again and has received the infilling of the Holy Ghost.
+
+When Romans 6 says sin shall not have dominion over you, it means we do not have to sin if we do not want to, because we have been set free.
+
+Amen.
+
+Let us read through Romans 8 again, approaching verse 13.
+
+Romans 7 says that what Paul would do, he could not do, and what he would not do, he ended up doing. He said:
+
+> O wretched man that I am!
+>
+> who shall deliver me from the body of this death?
+
+Then he said:
+
+> I thank God through Jesus Christ our Lord.
+
+He talks about the man's deliverance in Romans 8.
+
+There is therefore now no condemnation to the man who has been born again, who is in Christ Jesus, who walks not after the flesh but after the Spirit.
+
+To understand Romans 8, remember that "walks after the flesh" is a complete phase shift back to Romans 7, to the man under the law who is unregenerate and cannot keep it. Paul is describing the condition of that man under the law.
+
+Understanding that will help you understand how completely free you have been set from sin.
+
+The word condemnation means condemning sentences. The law, empowering your flesh to overthrow your mind and force you to sin, cannot carry those sentences out in you anymore. There is therefore now no condemnation to those who are in Christ Jesus, who walk not after the flesh, under the law, but after the Spirit.
+
+Why?
+
+> For the law of the Spirit of life in Christ Jesus
+>
+> hath made me free from the law of sin and death.
+>
+> For what the law could not do,
+>
+> in that it was weak through the flesh,
+>
+> God sending his own Son in the likeness of sinful flesh,
+>
+> and for sin,
+>
+> condemned sin in the flesh:
+>
+> That the righteousness of the law might be fulfilled in us,
+>
+> who walk not after the flesh, but after the Spirit.
+
+The righteousness of the law is this: Paul consented in Romans 7 that the law was good, just, and holy. "Thou shalt not bear false witness. Thou shalt not lie. Thou shalt not commit adultery." That is the righteousness of the law. But it could not be fulfilled in an unregenerate man because of the weakness of the flesh.
+
+Jesus condemned sin in the flesh. When He was crucified, my old man, the man of sin, was destroyed with Him. Now the righteousness of the law can be fulfilled in me because Jesus broke the power of sin over my flesh.
+
+He was made to be my sin so that the righteousness of the law might be fulfilled in us who walk not after the flesh, under the law, but after the Spirit.
+
+> For they that are after the flesh do mind the things of the flesh;
+>
+> but they that are after the Spirit the things of the Spirit.
+
+Those after the flesh have their thought processes controlled by the flesh and the law of sin and death. Those after the Spirit have their thought processes brought under the dominance of the walk of the Spirit.
+
+> For to be carnally minded is death;
+>
+> but to be spiritually minded is life and peace.
+>
+> Because the carnal mind is enmity against God:
+>
+> for it is not subject to the law of God, neither indeed can be.
+>
+> So then they that are in the flesh cannot please God.
+
+Then Paul says:
+
+> But ye are not in the flesh, but in the Spirit,
+>
+> if so be that the Spirit of God dwell in you.
+
+This sounds like a blanket statement. What qualifies me to be in the Spirit and not in the flesh? The Spirit of God dwells in me. If any man does not have the Spirit of Christ, he is none of His.
+
+Paul is not talking about a born-again Christian acting carnally. He is drawing a line between a man under the law and a man in the Spirit. You are no longer in a position where the law empowers your flesh to force you to sin. You are not in the flesh anymore because you have been born again, filled with the Holy Ghost, and have the Spirit of Christ.
+
+He is showing you how completely you have been set free from sin.
+
+Romans 8:10 says:
+
+> And if Christ be in you,
+>
+> the body is dead because of sin;
+>
+> but the Spirit is life because of righteousness.
+
+Let us cover one more time what happened to you and me when we were born again.
+
+The day you bowed your knee to the Lord Jesus Christ, your spirit instantly went from death to life. It became a new creation. Your old nature was taken out, and a new nature was put in. The Old Testament looked forward to this day when your stony heart would be removed and you would receive His.
+
+He did not say your spirit is alive. People in hell are alive. He said your spirit is life, L-I-F-E. You have entered into the Zoe, God-kind of life, and your spirit is seated in heavenly places with Christ Jesus.
+
+The part of you that was born again was your human spirit. Then you received the Spirit of God, the baptism of the Holy Spirit. Those are two different things: your recreated human spirit and the Spirit of God dwelling in you.
+
+If Christ is in me, my spirit has entered into the Zoe, new-creation life. It is seated in a heavenly place with Christ Jesus. But notice what Paul says about the body:
+
+> The body is dead because of sin.
+
+My body is not dead in a literal sense because I am wearing it. He said dead because of sin, meaning my old man of sin has been crucified with Jesus. Jesus gave the body a positional truth at my rebirth, and that positional truth is death.
+
+The death he is talking about is mortification: the ability of sin to empower my flesh and force my mind to submit to it has been broken by a positional truth.
+
+If Christ is in me, I have His nature in my spirit now. Positionally, as far as my flesh dominating my spirit, my flesh has been declared dead with the death of mortification. In that death, it does not have the power to rule over me anymore.
+
+It is not that the body cannot be tempted. This is the problem with religion. We have not understood it. If I have been set free from sin, how come I still want to do it? Holiness teaching often says fluently, "You have been made free from sin, so do not do it, you vile thing." I knew the Word said I had been set free, but I did not understand what in me still wanted to sin.
+
+Mortification means I am still wearing this body, and it is still capable of sinning. The death Paul talks about is a death of mortification, executed by the indwelling presence of the Holy Spirit. This is why he says:
+
+> If ye through the Spirit do mortify the deeds of the body, ye shall live.
+
+It is not that I am not tempted with sin, and it is not that I am not capable of sinning in my present state. You know you are. But the ability for that sin in your flesh, empowered by the devil, to overpower your mind was canceled when you were crucified with Jesus.
+
+Sin shall no more have dominion over you.
+
+We have a positional truth. Praying in the Holy Ghost executes the positional truth of edification. Meditation in His Word and worship execute positional truths. Fasting executes the positional truth that your flesh has been declared dead.
+
+Eastern religions practice self-discipline and extreme fasting more than most Christians ever dream of. But they are not executing a positional truth through their fasting. You and I are. When you fast, you execute the positional truth that your body has been declared dead concerning the dominance of your flesh over your spirit.
+
+Romans 8:11 says:
+
+> But if the Spirit of him that raised up Jesus from the dead dwell in you,
+>
+> he that raised up Christ from the dead
+>
+> shall also quicken your mortal bodies
+>
+> by his Spirit that dwelleth in you.
+
+When He quickens your mortal body, He supplies strength to brace you against sin.
+
+Then verse 12 says:
+
+> Therefore, brethren, we are debtors, not to the flesh,
+>
+> to live after the flesh.
+
+What would cause me to be in debt to the flesh? If I am the unregenerate man in Romans 7 who received the law and delighted in it with my mind, yet saw another law in my members bringing my mind into captivity to the motions of sin in my flesh, then I was in debt to the flesh. It put me in debt, and I had to pay it. I could not help it.
+
+But when I was born again, that debt was canceled. I am no longer in debt to the flesh to live after the flesh. That debt was canceled when I was crucified with Him.
+
+My flesh cannot make me make payments on sin anymore. It cannot make me sin anymore. The Holy Ghost will see to it, because my debt has been canceled. Sin shall have no more dominion over me.
+
+If you can believe this, you have been set free.
+
+Right now the Holy Ghost will not let me get past this without saying it: if you are still smoking, it is because you want to. I feel the anointing about this. Believe me when I tell you the Holy Ghost will not let me pass this without saying things like this.
+
+Listen closely. At one time in my Christian walk, I was in such bondage to the flesh that if you had asked me, by my own estimation I did not think I could quit. I knew in theory that He had set me free, but every emotion in my body, every fiber of my being, said I could not. I used to throw my smoking pipes out the window on the way home from church because of conviction, then buy a new one the next day on the job.
+
+Now I understand that mortification must take place by the power of the Holy Spirit. I also understand that if the Holy Spirit had no positional truth to execute, He would have no power. But He has a positional truth, and that is the death of my flesh. It has no more power to dominate me. I am no longer in debt to it.
+
+I do not care if, in your own estimation, the temptation was more than you could bear. There is no temptation taken you but such as is common to man. God is faithful and will not allow you to be tested above what you are able, but will provide a way of escape. That way, my friend, is through His Word to the cross.
+
+The biggest deception of the devil is to make you think your case is so great that unless God comes into your house and makes a special case out of you, you will not be set free. The devil wants you to keep looking forward to the day God is going to do something, while God is saying, "I already have. I destroyed the power sin had over you on the cross, and you are not in debt to it anymore."
+
+Your first step is to spit in the devil's face and acknowledge that you are already free. Sin does not have dominion over you. Even if you think you had to do it, it did not have the power to make you do it. God did not fail you. You are in the process of yielding to something He has already done.
+
+This revelation is adding a dimension to my character that I have needed for some time.
+
+You can list sins to the nth degree. All unrighteousness is sin. Not all sin will captivate and cause you to go to hell. Some of it is classified as faults that others need to help restore. Some sins are worse than others. Paul said, "Flee fornication," because you are giving the members of the Body of Christ to a harlot.
+
+Even if you take the equation down to the tiniest sins, it does not matter. If complacency or indifference is what you are guilty of, a whole town can go to hell around you, starving to death while you step over it. He has set you free from all of it.
+
+This has helped me become much more careful about offering myself excuses for lack of prayer. Most of it is along the lines of what Jesus said about speech: let your yes be yes and your no be no, because anything more can foster evil. We are so quick to lie and give excuses to cover the real motive.
+
+Once a person starts down the road of sin, it is destructive.
+
+"Do you not want to go to church?"
+
+Of course you do not feel like going to church if you are in sin. But will you say that? No. You will not say, "I am sinning now, so I am not comfortable in church." You say, "I am just a little busy these days."
+
+Right on down the line, He set me free from all of it.
+
+Listen closely. Of all the super churches in America, including the super churches in Tulsa, from the realm we are walking in, this is the best we have to offer. Yet there is still presently no great revival taking place where people are getting born again by the thousands. Obviously, if we are not having revival, we are not doing something we should be doing.
+
+If we are going to have this kind of revival, then obviously it calls for measures we have never taken before. To have something we have never had, we are going to have to do something we have never done. I am afraid we are talking about a realm where you cannot offer the flesh any excuses.
+
+God has never withheld anything. Everything He purchased through redemption for every believer for two thousand years has been handed to every one of us as a finished work on a golden platter. Whether believers received it or not was totally up to them, not God. He has failed no one.
+
+I have been on this teaching long enough, and I will keep saying it until I realize it is getting into some of you. It is getting into some of you. I told one man today, "You are going to have to have more grace." If I do not give myself excuses, why should I give them to anybody else who comes whining?
+
+Usually during the time we are transforming to a revelation, we get a little self-righteous. We can see all the obvious faults in other people that we have been gloriously purged from. Outside the revelation, I try to be careful about the grace I walk in.
+
+But this revelation has helped my character. God had me go way back into my life and see things I had blamed on other people, circumstances, and the teaching I had received. He had me bring it full circle and say, "If this law is good for you now, it was good for you then. The reason you are no further along than you are is that you allowed the flesh to whip you out on more turns than you want to admit."
+
+My faith is getting stronger, and it is in some of you too. I am allowing myself fewer excuses. When I fail, I know it was not God who failed me. That helps me reach back, get my bootstraps, pull myself out of the mud, and start over, cleansed by God and more determined the next time.
+
+The law of the Spirit of life is ready to execute my victory when I am ready for it to be executed. When I get serious, He is there to meet me.
+
+Romans 8:12 says:
+
+> Therefore, brethren, we are debtors, not to the flesh, to live after the flesh.
+
+Verse 13:
+
+> For if ye live after the flesh, ye shall die:
+>
+> but if ye through the Spirit do mortify the deeds of the body, ye shall live.
+
+Again, this is a complete phase shift to Romans 7, talking about a man with the motions of sin in his flesh overpowering his mind. He is drawing a distinct line between the two covenants.
+
+If you through the Spirit receive what He has supplied and mortify the deeds of the old man through the rebirth and infilling of the Holy Ghost, then you shall live.
+
+Verse 14:
+
+> For as many as are led by the Spirit of God,
+>
+> they are the sons of God.
+>
+> For ye have not received the spirit of bondage again to fear;
+>
+> but ye have received the Spirit of adoption,
+>
+> whereby we cry, Abba, Father.
+
+The Holy Spirit did not come to bring you into bondage like the law did. The law acted as a schoolmaster to reveal the old nature and show men they needed a Redeemer. It took millions of gallons of blood to cover the remembrance of sin from year to year, because the blood of goats and bulls could not take away sin or purge us from the consciousness of sin in our new-creation spirit.
+
+But now we are born again. We have received not the spirit of bondage again to fear, but the Spirit of adoption whereby we cry, "Abba, Father."
+
+When is this adoption process made complete? Romans 8:23 says:
+
+> And not only they, but ourselves also,
+>
+> which have the firstfruits of the Spirit,
+>
+> even we ourselves groan within ourselves,
+>
+> waiting for the adoption, to wit,
+>
+> the redemption of our body.
+
+The old King James phrase "to wit" means to be made complete or brought to culmination. When we were born again, adoption papers were served on us. But the adoption will be made complete at the redemption of our bodies.
+
+I no longer possess a spirit given to me by the first Adam. I have been born again. I have a spirit given to me by the last Adam, Christ Jesus. Unfortunately, I am still wearing a body given to me by the first man, Adam. Therefore death still works in it, even though adoption papers have been served.
+
+One day the trumpet will sound. My body will go from corruptible to incorruptible. I will receive a body spawned from the loins of the last Adam, Christ Jesus. I will receive one glorified body and become a manifested son of God.
+
+Manifested means first you were served adoption papers and born again, but the manifestation of your adoption was made complete at the redemption of your body. Meanwhile, the best He could do was give you a positional truth: if Christ is in you, the Spirit is life and the body is dead. He broke the power of sin and took you out of death. Sin has no more dominion over you, and that truth is executed by the indwelling presence of the Holy Spirit.
+
+We have not received the spirit of bondage again to fear. We have received the Spirit of adoption that causes something inside us to cry, "Abba."
+
+Even though I am wearing this body, my spirit has been born again and Jehovah has become the Father of my spirit. My God, that turns me on.
+
+Of all the things to rejoice over, devils are subject to you and disease is subject to you, but Jesus said the thing you should rejoice over most is that your name is written in the Lamb's Book of Life.
+
+Abba is an affectionate term. It means Father in an individualized way, more like "Daddy." Not Jehovah as the God of the universe, not Father of all, but Abba, the Father of my individual spirit.
+
+> The Spirit itself beareth witness with our spirit,
+>
+> that we are the children of God.
+
+For the next few services, Lord willing, we are going to study the inner witness, the voice of the Spirit through the indwelling presence of the Holy Spirit. Notice Paul talks about an inner witness. Most of us want to know what an inner witness is like. We try to hear God's voice, be led by the Spirit, and walk according to that inner witness. But from what I have seen in most people's lives, they do not understand it enough to walk by it, so they end up in shambles.
+
+The indwelling presence of the Holy Spirit leads you as a son of God. He leads you out of a walk dominated by the flesh into a glorious, liberated walk of power and domination of the flesh out of the operation of the inner man.
+
+For a long time, as I tried to understand how God's voice worked in me regarding the leadership of the Spirit, I did not know how I cried "Abba, Father." I did not walk around hearing myself say, "Abba, Abba, Father," as a witness.
+
+What Paul was saying is in the next verse: His Spirit bears witness with our spirit that we are the children of God. When you are born again and receive the Spirit, He continually bears witness inside you, saying, "Abba, Father." He causes your spirit to understand that you are a child of the Most High.
+
+How many have that witness? That is how He cries Abba Father in us and causes us to have the inward cry: I know that I know that I know I am His son.
+
+Have you ever had circumstances get so bad, even though you love God and are not sinning, that your cars break down, your house payment is overdue, and devils are screaming that God is failing you? Finally you throw your hands up and say, "I give up. I am not going to church anymore."
+
+You try to quit. There may be fifteen thousand metric tons of pressure stacked by the devil and the flesh on your born-again spirit. There is no light. You cannot see anything. You are going through it. But when you decide to quit, something inside will not go out.
+
+You wake up during the night, and He is bearing witness. He will not let you quit. You hear Abba Father. He comforts you: "I am the Father of your spirit." You say, "I am going to quit," and inside He says, "Abba." He will not quit.
+
+You have not received the spirit of bondage again to fear. You have received the Spirit who, when the weight of the flesh says quit, keeps bearing witness: "I am the Father of your spirit." He will not give up until He brings you back.
+
+I have been able to hear God's voice much better since walking in more peace. About two years ago, after a time of fasting and prayer, God's power showed up in a different way and purged me to a level of peace I had never walked in before. During that time, I could hear His voice like I had never heard it before.
+
+His voice consists of an inner witness that continually bears witness that you are God's child by crying Abba in your spirit. Your spirit picks up the cry and bears witness that you are His child. That continual witness is going on inside us all the time.
+
+I found that the more peace I walk in, the less that inner witness is disturbed. That is primarily the inner witness we walk by. That peace is supposed to be dominant all the time. When something comes into your life that is not of God, you are supposed to pick up the disturbance. It disturbs that peace, and you know, "No, this is not of God. I will not do it."
+
+Most of us get the leadership of the Spirit turned around. We say, "I am not going to do anything until He gives me an inner witness." We think God has to give an inner witness to go to a certain town. But the inner witness exists all the time that you are a child of Abba. You need to alert yourself when the inner witness is disturbed. If it is not disturbed, you are doing fine.
+
+I hear people say, "God told me to go to this city," and they go and cause the biggest mess you ever saw. After the failure, I ask, "Why did you go there?"
+
+"I had an inner witness."
+
+The footsteps of a good man are ordered by God. The footsteps, not the standing. If you do not do the basic commandments from the Word, you do not have to worry much about His leadership.
+
+Jesus said:
+
+> Go ye into all the world, and preach the gospel to every creature.
+
+What, did you have to have God tell you to witness to people? He said to lay hands on the sick and cast out devils.
+
+I know preachers who sit at home. I ask, "Why are you sitting at home?"
+
+"God has not given me the witness to go out and preach meetings."
+
+If, after knowing your call, you do not step out on the Word first, you do not need to worry much about His later leadership. Your first obligation is to the Word of God. When you are doing the Word, He steps in and begins to order your footsteps. If you are waiting for Him to tell you to do the Word first, He will not.
+
+I knew an evangelist who would not dare touch a city unless God told him to go. On the other hand, I had just gone full-time and left the mill. I was called by God, and I had a commission to preach the gospel to every living creature. So I went about my business preaching until He interrupted me and told me differently.
+
+I booked meetings in cities around me that my old car would make it to. Did God send me to any of them? He called me.
+
+One evangelist had Rosalie book his meetings. He was super-led. She booked him into the biggest meeting he had in a long time. He wanted to know how she was so super-led. She said, "I get a dart, blindfold myself, and throw it at the map."
+
+He said, "You do not."
+
+She said, "Oh yes, I do." If you know Rosalie, you know she would.
+
+Here I was going to cities because I was commissioned and called by God. I had an inner witness to preach. If He wanted me to do anything else, He had to intervene and tell me.
+
+I remember the first time He intervened. I had been preaching about six months. He wanted me to do a meeting at a certain preacher's church. That preacher had recently had an affair with a young woman in the church, and it had destroyed his marriage. God wanted me to go to that church and teach on the walk of the Spirit and faith.
+
+I had never asked for a meeting in my life, and I have not asked for one since. But God said, "I want you to call him and tell him you will preach for him."
+
+I said, "No, I cannot."
+
+He said, "You had better do it."
+
+The inner witness grew stronger and I became disturbed. Finally I called him. My voice stretched two or three octaves. He said, "Who told you?" Then he said, "Come on."
+
+It turned out to be one of the most powerful meetings. The offerings were so large they had to post them on the board. Then I went on my way, and He did not do anything like that for a long time.
+
+When I was getting ready to move from Medford, Oregon, I wanted to move to Portland to oversee what I thought was an emerging empire in Oregon. We had around twenty churches and forty pastors under us. I even had a building I was about to lease for headquarters. But as the time to move came closer, I felt like I was going to die. My peace was troubled.
+
+I prayed in tongues all day long. At the end of that day, the Holy Spirit said one sentence to me: "If you make the wrong move, it will cost four years of your ministry."
+
+I wanted to move to Portland, so that must have been the wrong move. My spirit was drawing me to Tulsa. At that time, many graduates were being told to leave Tulsa, and here I was wanting to move to Tulsa.
+
+About that time, Bob Yandian came for a camp meeting. He said, "I am not going to minister unless you minister." I finally got up and ministered in the Spirit, and God began giving words of knowledge and healing people. People were falling under the power.
+
+Bob asked, "Was that a sovereign move of God, or what do you attribute that to?"
+
+I said, "No, that was not a sovereign move. Attribute it to this series of tapes called Walking in the Spirit."
+
+He took the tapes home, listened, and later called. His church was exploding. He asked me to come to Grace and hold a meeting. We had a tremendous meeting with the power of God everywhere, packed out, people in the parking lot.
+
+At dinner, Bob looked me in the eye and said, "What is God telling you?"
+
+When somebody asks me a question like that, I often tune out the voice after the question and start listening to the Spirit. It looks like I am floating out there somewhere, not paying attention. I am no longer listening to the person; I am listening inside.
+
+Bob said, "What is God telling you?"
+
+I said, "You will not believe it."
+
+"What is He telling you?"
+
+"He is telling me to move to Tulsa."
+
+Bob said, "Glory to God. I knew it the whole time."
+
+We moved to Tulsa. I did not know why then. God does not train a person for twenty years sleeping in halls, preaching camp meetings, exciting group after group to intercession and prayer, watching them a year later defeated, and sending him through a thousand programs as president of a corporation, for an easy job.
+
+He said, "Stop. Your training is approaching a certain point. You are going to have to straighten yourself up. Find out what barrier they are hitting that keeps them from revival, and you had better go through it."
+
+That is why you see the empty chairs. We fasted and prayed so hard that we approached the realm of revival, and the devil struck with such vengeance that he ran everybody off. I now know what stands between us and revival.
+
+This is different from hit-and-run evangelism. We are in this together. No running. We are going to see a thousand born again in a service. Do you hear me? His glory is going to pour out, and we are going to help people.
+
+The inner witness is not a whim. When hell is stacked on your flesh and He will not give up, He keeps bearing witness: "You are My child." You feel Him in there. He will not turn loose. Everything may feel horrible and failing, but He keeps coaxing you and calling you His child.
+
+Do you want to take that little flicker that has not gone out and excite it? The Holy Ghost, in the little channel He has left, keeps inserting that Abba Father. If you want to take circumstances back over, one of the most powerful keys is to begin again out of your spirit, edifying yourself. Ignite that pilot light. Keep on until your direction is set again.
+
+The more you pray in tongues, the more His direction in your life grows like a tree. Do you think God is going to order your life with a whim? Your ministry is placed inside a circle. You are a free moral agent, so you move around inside that circle doing the work of God. Then you step outside the circle, and He says, "No, I do not want you to do that." The inner witness checks you, so you go back and resume your ministry inside the circle.
+
+He is not going to trust your life, the moving of the Spirit, and the fulfilling of your ministry to a whim. Direction grows like a tree. It starts growing inside your spirit and ordering your direction. The more you pray in the Holy Ghost and work the plan of God, every time you get off that path, the inner witness goes off: check, check, check. Get back on the path.
+
+It is not a flash of brilliance for one second that subjects the rest of your life to failure because you did not quite catch it. It grows like a tree until your direction is set.
+
+Anyway, let us stand.
+
+Did you have a good time tonight?

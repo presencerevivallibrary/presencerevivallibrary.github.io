@@ -1,0 +1,385 @@
+# Working Your Measure of Grace
+
+## Church Government Must Be Understood as Gifts Serving the Whole Body
+
+All right. In this message, we have been studying on the inner witness. We have taken several facets. Of course, we began in this facet concerning church government, and the Holy Ghost instructed me to return somewhat this morning.
+
+Look at 1 Corinthians 12:1:
+
+> Now concerning spiritual gifts, brethren, I would not have you ignorant.
+
+If there is any area the church is ignorant in, of course, it is concerning spiritual gifts. If Paul, the teacher that he is, would make a statement like this, then the information is available to eradicate this kind of ignorance.
+
+In fact, Paul was so distinct that he taught this specific message on church government in three places: Romans 12, 1 Corinthians 12, and Ephesians 4, where He ascended on high. It was not until I was lost in meditation and praying the mysteries up before the Father on all three accounts, pouring over them for years, that what He wanted me to know began to materialize.
+
+At first I thought something was wrong with me. When I first moved to Tulsa some nine years ago, it was with the fullest intention to base my ministry out of Grace Fellowship and, of course, evangelize the world.
+
+There is something about being indoctrinated by God to receive not only the grace that separates you to your office, but also the measure of faith that is activated in your life at that time to fulfill that office. It seems an absolute impossibility to escape that measure of faith that works and works on the office of the grace-call He is perpetuating in your life.
+
+For a long time I thought something was wrong with me when the Holy Spirit began to pull me away and I sought Him for years over revival and the cost of it. He began to pull me away with these words:
+
+"I can only instill so much into the people that I want you to instill into them by having them part-time."
+
+Out of these statements, the Prayer Center family as a church was born.
+
+I thought something was wrong with me. Then I found out that the vision He gave me from these meditations and mysteries, as I began to understand church government and the separation of my call, simply would not fit in their vision. It was not that they were doing anything wrong, nor that I was doing anything wrong.
+
+Now I am beginning to understand it more and more.
+
+Notice very closely. Paul said, "Concerning spiritual gifts, brethren, I would not have you ignorant." As the faith move taught it, church government was taught one certain way. In this chapter, he lists nine gifts of the Spirit, but he lists more than that. When he says, "Concerning spiritual gifts," and says there should be no ignorance, he is talking about the function of the entire gifts and operations in the body of Christ.
+
+He is talking about the nine gifts Pentecostal people are so familiar with, which empower the five ministerial offices we are so familiar with. These nine gifts, empowering and qualifying these five offices, are enveloped in eight operations that we are becoming familiar with.
+
+When he said, "Concerning these gifts, I would not have you ignorant," it took me a while to realize that even the nine gifts of the Spirit are in divine order. The first is the word of wisdom, then word of knowledge, then faith. Just as first He placed apostles, secondarily prophets, thirdly teachers, and just as the offices and operations are in divine order, so are the nine gifts of the Spirit.
+
+The top gift is the word of wisdom.
+
+I could never understand certain things, such as why gifts of healings had priority over workings of miracles, even though workings of miracles was a more spectacular gift. I could not understand that until the love of God began to kick in enough in the operation He gave me to begin to understand God's love for people.
+
+The gifts of healings do not just include the healing of your physical body. They also reach down inside and heal the traumas, hurts, and problems we run into. That gift extends with power to heal us on the inside of hurts and things, even sometimes those things that keep us from receiving miracles in our physical body.
+
+Now that I understand that, I understand why gifts of healings has priority over workings of miracles.
+
+I understand why word of wisdom would be numbered one. In God's government, you will see wisdom operating around mature and established ministries, particularly those in charge of entire operations, such as Lester Sumrall. This wisdom operating in him can arrest, turn, organize, see things in the Spirit, understand things, and run church government accordingly.
+
+Most predominantly, the wisdom that operates not only in wisdom and words of knowledge for people under the anointing of the power, but also in leadership as a gift, is designed to match needs with ministry.
+
+The biggest mistake preachers can make is becoming a one-man show. Wisdom matches needs with ministries, needs with ministries, needs with ministries. As we unfold this, we will get into why.
+
+## The Body Gives More Honor to the Parts That Need Ministry
+
+Go down in 1 Corinthians 12 to verse 23:
+
+> And those members of the body, which we think to be less honourable, upon these we bestow more abundant honour...
+
+And on our uncomely parts, he says:
+
+> ...more abundant comeliness.
+
+Then:
+
+> For our comely parts have no need: but God hath tempered the body together, having given more abundant honour to that part which lacked.
+
+You say, "Brother Roberson, why won't your vision fit?"
+
+I will tell you. I guess the one who first started jerking the slack out of me was my wife. Coming from the background I came from, I was a habitual liar as a teenager and a habitual liar in the Navy. I wanted to become something people would like, so I lied to be accepted.
+
+Then all of a sudden, when God began to use me, a certain amount of exaltation came with it. I found myself walking out on the platform, preaching next to men and women of God I would have paid a hundred dollars just to hold their sweaty coat. All of a sudden, I was not just being accepted. I was being revered. I was being honored.
+
+I went from intimidation and inferiority to being honored and revered, sometimes even picked up in Rolls-Royces and ushered to meetings by doctors. I tell you what, you have to have something from God to keep that stuff from getting to you. It did start getting to me.
+
+Who will notice first? Your wife.
+
+I remember when she first brought my attention to it to any degree. We were in an elevator. I had just been with a bunch of ministers. When I would get up to take an offering or preach a little exhortation, they would all run off and fellowship. When I got down, they would come back and take the service. It irritated me.
+
+So I got in the elevator with my wife, and there was a room full of people. Somebody said, "Boy, that was sure a good exhortation you gave. I wish you would say more. Some of the other guys ought to hear this."
+
+I said, "Yes, they do not hang around long enough to hear what I have to say."
+
+Self-exaltation, boasting. Anyway, I got corrected.
+
+The way the faith people began to break down Ephesians 4 was this:
+
+> When he ascended up on high, he led captivity captive, and gave gifts unto men.
+
+He gave some apostles, prophets, teachers, preachers, and evangelists for the work of the ministry and for the maturing of the saints. They categorized us in a different category. In other words, "I am special because I am a gift given to you. You do the work of the ministry, and I was given to you for the work of the ministry and for the edification of the saints."
+
+So in the teaching, we were categorized in another category than the sheep. We were taught that we were something special.
+
+The more I got into the government of God, the more backward I found this was. The way the whole system is supposed to be set up, from the mighty apostle all the way down to the groups of edification of the saints, to that eighth operation, diversities of tongues, is that the greatest among you will be servant of all.
+
+He says more abundant honor should be bestowed upon the more uncomely part. The whole system is supposed to be set up from the mighty apostle all the way down to the little sheep who just stumbled into a prayer meeting with a born-again spirit and a boatload of problems. The whole system is supposed to be designed to establish his feet on the Rock and minister to him at any cost.
+
+So wisdom in ministry is supposed to match needs with ministry in the local body.
+
+## A One-Man Show Leaves the Saints Fed but Still Discontent
+
+I have said this before, and I am going to say it again. I have had the whip out and have whipped you continually back into prayer. I will tell you why, and it will become more and more evident as we go on.
+
+I wanted you to come to a place in your spirit, upon that foundational rock, where if quite a lot of pressure is poured out on you, you can take it.
+
+In this ministry of matching needs with ministry, if I become the one-man show, then eventually, because you have received a measure of faith and because from God Himself you have received grace to fulfill a specific office in the body, if I become a one-man show, it does not matter how good a teacher I am. It does not matter how good a preacher I am. You will sit under the finest filet mignon in the world, under any preacher in the world, and eventually become discontent.
+
+Why? Because your perfecting and maturing cannot come to fruition until you yourself are flowing by that faith through your grace and taking your rightful position in the body of Christ as an able minister called to fulfill the function you have been separated to fulfill by Jesus Christ.
+
+You do not care how good I am or how good any other teacher in the world is. You will become discontent because maturity is impossible, the fullness of the stature of Jesus Christ is impossible, until He can stand up in you and become from the foundations of the world what He designed to become in you.
+
+So you will come to a place where you would rather eat hot dogs, if you are the one who gets to fix them, than filet mignon I feed you.
+
+"Brother Roberson fed us another steak, didn't he?"
+
+"Yes, then he dismissed the service."
+
+You would rather eat a hot dog you get to fix with your own two hands than filet mignon I feed you, because my filet mignon will not satisfy you. But your hot dog will, because it was your faith and your grace that cooked the hot dog.
+
+We sit in churches, and our heads get fat. We sit there and sit there. Pretty soon they are doing everything to keep us juggling sheep: building bigger churches that look like little cities, putting swimming pools and racquetball courts in them.
+
+It is like getting a new car. When you get a new car and smell the upholstery, I get high on it. It is wonderful. It is like getting a swimming pool for your house. It is wonderful. You can run on the excitement for a while. But after the excitement wears down, you are left with what you had before.
+
+They added another foundation to the flesh with discontentment, until either you kill the discontentment and just sit there, or your interests go elsewhere. You can hardly wait to get out of church because you are going to go do this and that.
+
+After a while, that measure of faith that continually tries to activate the grace of your calling, if you stanch it enough, will begin to die. You will not care what the preacher does.
+
+Where do you think organizations come from that, after the third generation, deny almost everything in the Word of God?
+
+We had better look at this a little closer.
+
+## Every Believer Has a Vocation in the Body, Not Merely a Job in the World
+
+Go down in 1 Corinthians 12 to verse 27:
+
+> Now ye are the body of Christ, and members in particular.
+
+You and I are individual members in a vast body called the body of Christ.
+
+Now notice Ephesians 4:1:
+
+> I therefore, the prisoner of the Lord, beseech you that ye walk worthy of the vocation wherewith ye are called.
+
+The vocation he is talking about here is not your vocation in the world. He is not talking about the world here.
+
+"What is your vocation?"
+
+"I am a computer programmer by trade."
+
+"What is your vocation?"
+
+"I am a teacher by trade."
+
+"What is your vocation?"
+
+"I am a doctor, a nurse."
+
+No. Anywhere I go, I have a vocation. He is talking about your vocation, the separation of your grace in the body of Christ, what has been assigned to you since before the foundations of the world. What has He given you that your measure of faith is designed to fulfill in your life? What vocation are you called by Him to be worthy of?
+
+Paul continues:
+
+> With all lowliness and meekness, with longsuffering, forbearing one another in love;
+> 
+> Endeavouring to keep the unity of the Spirit in the bond of peace.
+
+Now notice that verse 4 is saying the same thing as 1 Corinthians 12:27:
+
+> There is one body, and one Spirit, even as ye are called in one hope of your calling;
+> 
+> One Lord, one faith, one baptism,
+> 
+> One God and Father of all, who is above all, and through all, and in you all.
+
+But now he goes into detail in a slightly different direction:
+
+> But unto every one of us is given grace according to the measure of the gift of Christ.
+
+How many? Every one of us.
+
+He is saying exactly the same thing here as he is in Romans 12:3, when he says:
+
+> I beseech you therefore, brethren, by the mercies of God, that ye present your bodies a living sacrifice...
+
+Do not be conformed to the world, but be transformed by the renewing of your mind to prove what is the good, acceptable, and perfect will of God - your vocation. What are you called to fill in the body of Christ?
+
+I am telling you how important this is. You cannot come to maturity without it.
+
+Then in Romans 12:3, Paul says:
+
+> For I say, through the grace given unto me...
+
+He says, "I am an apostle. I speak according to the grace given to me, my vocation, my call in the body, that you ought not think of yourself more highly, but think soberly according as God has dealt to every man the measure of faith."
+
+In Ephesians 4, he calls it:
+
+> ...the measure of the gift of Christ.
+
+It is the same thing. He is talking about the faith given to you by the Holy Spirit that will work at its best, at a hundredfold, when it empowers your vocation.
+
+You cannot sit here year after year, walk out, and be complete. You have to get involved.
+
+He is saying exactly the same thing. To every one of us He has given grace according to the measure of the gift of Christ.
+
+I ought not think more highly of myself. Why should I? I did not merit, deserve, or earn my office. Neither did you. It was a gift. I get to fulfill it. I get to execute the faith. I get to learn the Word. I get to pray. I get to fuse my grace with His power.
+
+I did not earn it. Nor did I ask for my call. Nor did you. But I have the privilege of finding it.
+
+He said to every one, every one is given grace according to the measure of the gift of Christ. Not one single person was left out.
+
+On the Day of Judgment, what you are really going to be rewarded for, or not rewarded for, is how much of the faith that was in your measure you fulfilled. I do not care if you sat in the finest church in the world, in Tulsa, and tithed every week. You are going to be rewarded by how much of the measure of faith you executed in your office of Christ.
+
+Every one of you.
+
+## Ephesians 4 and First Corinthians 12 Describe Three Categories of Gifts
+
+In 1 Corinthians 12, he listed eight operations. One of these is your call:
+
+> And God hath set some in the church, first apostles, secondarily prophets, thirdly teachers, after that miracles, then gifts of healings, helps, governments, diversities of tongues.
+
+One of these, you have been called to take your measure of faith and execute as an office in the body of Christ. If you do not, discontentment and lack will result. Your hunger will never be quenched.
+
+Wisdom in ministry matches ministry with needs.
+
+Should we go further?
+
+Ephesians 4 says:
+
+> But unto every one of us is given grace according to the measure of the gift of Christ.
+> 
+> Wherefore he saith, When he ascended up on high, he led captivity captive, and gave gifts unto men.
+
+Sometime we will have to get into that. Right now we are interested in what was already delivered here:
+
+> Now that he ascended, what is it but that he also descended first into the lower parts of the earth?
+> 
+> He that descended is the same also that ascended up far above all heavens, that he might fill all things.
+
+Now notice:
+
+> And he gave some, apostles; and some, prophets; and some, evangelists; and some, pastors and teachers;
+> 
+> For the perfecting of the saints, for the work of the ministry, for the edifying of the body of Christ.
+
+I have been introduced in God only knows how many camp meetings as a gift to the body of Christ, and they quote these verses, rightly so. But folks, so are you. That is why he said He gave to every man. He did not just say the apostle, the prophet, the teacher, the preacher, and the evangelist are gifts. Yes, I am a gift to the body. But so are you.
+
+This is the way we taught it: He gave apostles, prophets, evangelists, pastors, and teachers for the perfecting, or maturing, of the saints, for the work of the ministry, for the edifying of the body.
+
+We taught that He gave me, as the fivefold, to mature you so you could do the work of the ministry, and this would cause the body of Christ to be edified.
+
+But that is not what it is really saying.
+
+When He ascended on high, He gave gifts unto men. He gave me my office, whatever it is, but He also gave you your office, whatever that is. He gives a clear-cut standing of these offices in 1 Corinthians 12, and He is saying the exact same thing in Ephesians 4:12.
+
+The 27th verse in 1 Corinthians 12 says exactly the same thing as this twelfth verse does.
+
+He said He gave first apostles, prophets, teachers, workings of miracles, gifts of healings. What did He give the fivefold for? The maturing of the saints. Why? Because we are called and gifted by God to handle the Word of God. Faith comes by hearing, and hearing by the Word of God. When you increase in knowledge and wisdom of Jesus Christ, maturity takes place.
+
+So yes, the fivefold was gifted by God for the maturing of the saints because we handle the Word of God.
+
+But the correct way to say Ephesians 4:12 would be this: He gave the fivefold for the perfecting of the saints. Then He ascended on high and gave gifts unto men, but the next set of gifts He gave was for the work of the ministry.
+
+The next two in the lineup of 1 Corinthians 12 are helps and governments. So first God set apostles, prophets, teachers, workings of miracles, and gifts of healings. What are they for? The maturing of the saints.
+
+The next two are helps and governments, and they are for the work of the ministry.
+
+So He ascended on high and gave gifts to teach and mature with. He ascended on high and gave gifts for the government and work of the ministry: helps and governments.
+
+What is the one left? There are eight operations. The operation of the apostle, the prophet, the teacher, workings of miracles, gifts of healings - which envelops pastor and evangelist - that is five. The sixth and seventh operations are helps and governments. What is the eighth?
+
+The eighth operation is diversities of tongues.
+
+So what is the third group? He ascended on high and gave gifts to teach and mature with. He ascended on high and gave gifts for helps and governments. Then He ascended on high and gave more gifts for the edification of the saints.
+
+What is the eighth operation? Diversities of tongues.
+
+So He ascended on high and gave diversities of tongues to all the saints for their edification. Three groups of His government. He ascended on high and gave me gifts for teaching. He ascended on high and gave gifts for helps and governments. Nobody can work government and helps like you do, because that is a gift from God for the work of the ministry. Then that last group, for the edification of the saints, covers all the different Spirit-empowered diversities of tongues. The eighth operation, He showered on the whole body for their edification.
+
+He gave me divers tongues.
+
+## Unity of the Faith Means Every Measure Functioning, Not Everyone Merely Agreeing
+
+Now this is where it gets interesting. He gave these gifts for this purpose:
+
+> Till we all come in the unity of the faith, and of the knowledge of the Son of God, unto a perfect man, unto the measure of the stature of the fullness of Christ.
+
+Very closely. I know I keep saying that.
+
+Till we all come into the unity of the faith. There is one thing we have to reconcile. He gave these three classifications of gifts to men until we all come into the unity of the faith.
+
+I admit, I got stuck here for a while. He gave these three classifications of gifts - gifts for maturing, for the work of ministry, and for edification - until we come into the unity of the faith.
+
+Yet I see people leaving our great camp meetings, and they are in the unity of the faith. Ask any of them, "How do you believe on healing?"
+
+"I believe He bore my sicknesses and carried my pains some two thousand years ago. Glory to God. I do not have to have them."
+
+"How do you believe on prosperity?"
+
+"Prosperity? Glory to God. By an act of grace, He took my poverty. Because He substituted Himself in my poverty, I have His standing out of it, and I want you to know I am rich."
+
+"How about peace?"
+
+"He is the Prince of Peace, and the chastisement for my lack of peace was laid on Him in the form of punishment. Because He was striped in punishment for my lack of peace and my violation, I am dominated with peace."
+
+They make all these wonderful confessions. We consider unity of the faith to mean we are all saying the same thing and doctrinally agree with one another. Thank God. I would rather have you agree with me than disagree.
+
+But what am I going to do? Preach to you for twenty years and send all of you out the door doctrinally agreeing with each other? What good did I do you?
+
+Is this a shouting message or a listening message?
+
+What is the unity of the faith?
+
+I rolled this verse over in my spirit, rolled it over and over, praying in the Holy Ghost, listening for that mystery. He started giving me little inclinations of it, as if it came from a long distance. I could almost hear it. I could feel what it meant, but I could not say it.
+
+Have you ever felt a verse and felt a revelation? You ran to tell somebody, and your words did not work right.
+
+He gave these three disbursements of gifts for the unity of the faith. Whatever this unity of the faith is, we know this much: in order for me to be a partaker of it, I must be subject, number one, to the fivefold in the maturing effect of the Word of God. Number two, helps and governments must play their role, especially if I have a gift of helps and governments. Number three, the third gift dispersed was for the edification of the saints, diversities of tongues. Evidently, without employing that part of God's government, I will also fall short of the unity of the faith he is talking about.
+
+Thank God, so far we are not falling too short in any of these areas. Even when we did not know the fullness of what tongues would do, we still kept whipping you by faith into the closet and making you pray for the edification of the saints. That is you. Your edification will keep building you up toward the unity of the faith.
+
+Then what is it, Brother Roberson?
+
+He says:
+
+> ...and of the knowledge of the Son of God, unto a perfect man, unto the measure of the stature of the fullness of Christ.
+
+You will be matured by the fivefold in the knowledge of God and the knowledge of the fullness of the Son of God, but he says "unto." You are going somewhere with knowledge.
+
+Unto what?
+
+> ...unto the measure of the stature of the fullness of Christ.
+
+The measure he is talking about is the entire body of Christ, the fullness of the measure of its stature. If the body of Christ were to stand up metaphorically, and my body represented it, you would see Jesus Christ standing there with His body, arms, hands, and feet. There would be a full body. That is the fullness of its stature.
+
+In the body of Christ, the body of believers represents the body because He is the Head. He says we grow up into Him in all things, but He is the Head, and we are the body.
+
+The stature of the measure of the fullness of Christ is the whole operation of the body of Christ. So the knowledge we are heading for in Christ, and the unity of the faith, is this: I have been delivered a measure of faith, and the measure of faith I have been delivered consists of one part of the whole.
+
+The whole is the body of Christ, the stature of the measure of the fullness of it. I have only been measured one measure, one part of it.
+
+Paul said, "I speak to you according to the grace that was given to me, out of respect to my apostolic office. You ought not think more highly, but think soberly according to the grace given to you, according to the measure of faith."
+
+I have only got a measure, and that measure empowers the call He has called me to fulfill in His body. All these measures working together make one whole, which is a functioning body of Christ.
+
+So what unity of the faith is he talking about? It is not all of us walking out of the building saying the same thing, although that is the first step: the knowledge of the Son of God. It is unto the fullness of the measure.
+
+He is saying these three categories of gifts kick in to bring us into a unity of faith: the maturing of the saints, helps and governments, and edification from praying in tongues. They all kick in to unify us until our measure of faith is filling our office, which links us together one with another to make a functioning body called His body.
+
+It is not all saying the same thing. It is filling a measure that links you with the next measure and the next, unifying you until you make an entire body, which is the body of Christ.
+
+You cannot link up and unify until the measure you have been delivered is working.
+
+## A Ministry Must Equip Each Measure to Take Its Place
+
+He has given us three categories of gifts: apostle, prophet, teacher, preacher, evangelist for maturity; helps and governments; and edification for the saints.
+
+When that measure of faith works in me for edification, for helps and governments, for apostle, teacher, preacher, or evangelist, then it activates my measure, which links me to the hand, the arm, the shoulder, and into the Head. It unifies the faith where my measure is working in the stature of the fullness of Jesus Christ.
+
+If you cannot fulfill it, discontentment will result. You were not called to sit here and go home and say, "What a good message."
+
+So what does a ministry do? You know as well as I do that my measure extends past the Prayer Center. You know that. But along with equipping comes the wisdom to match needs with ministries.
+
+I keep hearing this running through my spirit time after time: without the measure of faith fulfilling your grace separation, you cannot be content.
+
+"Well, I am just a helps government."
+
+Then you will just help and govern your little old heart out.
+
+"I am a psalmist."
+
+Then you will just sing your little old heart out.
+
+"I am called to make multimillions and put them into the kingdom."
+
+Then we will use your money until eighteen banks are put in Tulsa just to keep up with your bank account.
+
+"I am called to evangelize."
+
+Then by the time you leave here, you will have the equipment of an evangelist. You will not be some penny-ante, mealy-mouthed person trying to line up a bunch of meetings because you do not have any power in your life.
+
+"I am called to pastor."
+
+Then you will go instigate a government where each person in it has the opportunity to plug in with their measure toward the stature of the fullness of Christ, the unifying of the faith.
+
+Glory to God.
+
+The unity he was talking about was the uniting of your measure into that body, not just because you run out and say things and agree with everything I preach.
+
+It is when your gift is activated as a force in the body of Christ.
+
+That is unity of faith.

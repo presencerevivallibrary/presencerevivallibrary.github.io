@@ -1,0 +1,231 @@
+# Finding Your Vocation by Prayer
+
+## Satan's Strongholds Are Thoughts Empowered by Emotion
+
+Last night we taught on counterfeits of God's operations and briefly examined how Satan organizes his war machine against us. His principal weapon is deception. Through deception he builds strongholds in lives, religions, and cultures, then uses those strongholds as prisons.
+
+Paul says:
+
+> For the weapons of our warfare are not carnal, but mighty through God to the pulling down of strong holds;
+>
+> Casting down imaginations, and every high thing that exalteth itself against the knowledge of God.
+
+These strongholds are systems of thought empowered by emotion: "I would rather die than turn from the religion of my fathers." Satan's attack on the emotions can carry quite a wallop.
+
+People say the will is stronger than emotion, but experience often shows otherwise. A person disciplines himself to lose weight, yet six months later eats exactly as before. His will failed when his emotions took over and said, "It is not worth the fight. I do not care anymore."
+
+Emotions cannot simply be dismissed; they must be turned. That turning is part of the soul's transformation through the renewing of the mind. Satan gains power through emotional strongholds because people do not want to leave them.
+
+He is a world-class destroyer. He destroyed the world before Adam, put this world on the broad path, and even after Christ's millennial reign will deceive nations when briefly released. Killing and destroying are all he does. If you misjudge him, he will kill you.
+
+## God Entrusted Us to the Holy Spirit Himself
+
+For that reason, God did not entrust you merely to an angel. Thank God for angels; they minister our covenant as we walk in God's purpose. But they are not here to serve fleshly whims. God entrusted us to the third Person of the Godhead, who came to dwell within us. God stands inside you, and therefore you can stand against the destroyer.
+
+The Holy Spirit's foremost commission is to guide us into all truth, and God's Word is truth. Even after all these years, I remain amazed that God loved me enough to entrust me to the Holy Spirit, the source of revelation knowledge.
+
+Father, Son, and Holy Spirit are coequal. In redemption they accepted the roles by which we understand them. The Father planned; the eternal Logos took the role of the Son and Redeemer; and the Holy Spirit consented to dwell within us. Before natural creation existed, the triune God existed eternally. John says the Word was with God, was God, made all things, and then entered the world that He made.
+
+The Holy Spirit, equal with the Father and the Son, came to live in you and brought heaven's prayer language with Him.
+
+## The Spirit Transfers the Perfect Prayer to Our Authority
+
+Paul says:
+
+> For if I pray in an unknown tongue, my spirit prayeth, but my understanding is unfruitful.
+
+At the moment I pray, I do not understand the words flowing from my spirit. Later I may understand when God answers by revelation. If my human spirit is praying, the Holy Spirit must transfer the language into my spirit.
+
+Paul also says that the person who prays in an unknown tongue speaks not to men but to God. Does that mean God is speaking to Himself? No. The Holy Spirit transfers the prayer to you so that it becomes your prayer. He knows what you need, places the perfect prayer in your spirit, and you pray it to the Father.
+
+Redemption came through man. Jesus paid the price as a man, was raised and glorified, and left the ministry of reconciliation in human hands. As the glorified High Priest at the Father's right hand, He said:
+
+> All power is given unto me in heaven and in earth. Go ye therefore...
+
+In "Go ye therefore" was a transfer of authority. He gave His body authority over the enemy and commissioned us to carry the Gospel.
+
+The Holy Spirit therefore transfers His language to your spirit so the prayer proceeds through the authority Christ gave you. The Holy Spirit stands on one side, creating the perfect prayer; the Father and glorified Christ stand on the other, receiving and answering it; and you are in the middle. When those prayers begin to be answered, your life changes.
+
+Why has the devil so thoroughly discredited this operation and removed it from much of the Church? He fears it. When you begin praying, the enemy tries to stop you before the mysteries unfold.
+
+> For he that speaketh in an unknown tongue speaketh not unto men, but unto God...howbeit in the spirit he speaketh mysteries.
+
+Those mysteries concern everything Christ is in you, to you, and through you, the hope of glory. The day you begin spending even thirty minutes or an hour in prayer, while doing housework if necessary, you enter the Holy Spirit's classroom and say, "I have become Your student. Teach me what men cannot give me."
+
+## Mortification Changes Desire Instead of Merely Restraining Conduct
+
+As prayer continues, mortification begins in spirit, soul, and body.
+
+First, the Spirit deals with filthiness of the flesh, the habitual powers that keep one foot in the world. I once smoked a pipe. I would preach about hell in a holiness church, throw the pipe away on the way home, then buy another the next day. They taught that one had to become sanctified before receiving the Holy Ghost because He would not baptize someone with tobacco breath.
+
+They had the cart before the horse. Scripture says:
+
+> If ye through the Spirit do mortify the deeds of the body, ye shall live.
+
+I needed the Holy Spirit so the deeds of my body could be mortified. When I began praying in tongues, it became nearly impossible to continue with one foot in the world. The more I prayed, the more miserable compromise became. One or the other had to give way.
+
+Consider a man who is born again but continues seeking prostitutes. His pastor asks him to pray in tongues an hour a day. As he prays, the old conduct begins bothering him because the new nature is pouring into his soul. Eventually he picks up a woman and immediately lets her out again.
+
+The pastor says, "Keep praying, son."
+
+Through edification, the man begins hating the sin as God hates it. God says, "That is what I have been waiting for. Now you are giving Me the faith needed to move this mountain so you can take the next step into My plan."
+
+This is the difference between will worship and mortification. Will worship disciplines behavior against a problem. Mortification allows the Holy Spirit to transform the person at the root until the problem loses its hold.
+
+## Prayer Forces a Choice Between Strife and Spiritual Growth
+
+The Spirit next purges filthiness of soul: envy, strife, hatred, malice, and division. If you destroy your own body, that is between you and God. If your tongue destroys other people, God makes it His business.
+
+As you keep praying, you may find yourself reaching for the telephone to call someone you drove away. Eventually you say, "What I did two years ago was wrong. I am sorry."
+
+You cannot continue indefinitely both in prayer and in that corruption. When the Holy Spirit pulls it out where you can see and hate it, you must choose whether to surrender the sin or surrender the prayer life. Sadly, many surrender prayer.
+
+## Revelation Purges the Spirit From Incorrect Believing
+
+Filthiness of spirit is incorrect believing. Second Corinthians 7 speaks of cleansing ourselves from filthiness of flesh and spirit, perfecting holiness.
+
+The Holy Spirit baptized your spirit because permanent change proceeds through the new nature. He teaches your spirit, and your spirit then imparts understanding to your reasoning mind.
+
+I once passed a dilapidated house whose yard was piled with trash, abandoned cars, and weeds, even though expensive homes surrounded it. The owner refused every request to clean it.
+
+The Holy Spirit said, "The outside of that house is an exact picture of the inside of the man who lives there."
+
+I turned around, went home, and mowed my lawn!
+
+Picking bad fruit from the branches without dealing with the root is will worship. Eventually surroundings reflect the inward life. Give such a person a lottery fortune, a new house, a Corvette, and a pool, and in a few years the pool will be stagnant, the cars will sit on blocks, and the house will deteriorate. The inside takes over again.
+
+A person's spirit can believe incorrectly. Many preachers have proved it. The mysteries prayed in tongues, however, contain the pure mystery of Christ and its understanding. You cannot continue praying those mysteries and receiving God's answers without wrong beliefs being displaced by truth. John says the inward anointing teaches us concerning those who would deceive us, even if the deception comes from a pulpit.
+
+After six months of praying in the Holy Ghost, I revisited my former holiness friends. They sold pieces of tents, Bibles supposedly laid in Jesus' footprints, splinters from the cross, water from the Jordan, blessed salt, and miracle wallets that would never empty. The trouble with the wallet was that by the time it emptied, the preacher was out of town.
+
+I once would have been first in line. Now my spirit shut down whenever they moved into manipulation and flowed only when they truly moved in the Spirit. I wondered whether I had backslidden. In reality, prayer had awakened discernment. Those ministers may have loved God, but financial pressure led them into manipulation, cracked their armor, and gave the enemy control. The Holy Spirit purges us from such error.
+
+## Prayer Brings Forward Soul Winning, Vocation, and Occupation
+
+Suppose I were not a preacher and began praying extensively. Beyond mortifying false doctrine, the Spirit would bring God's call forward in three areas.
+
+First is soul winning. If you cannot reach toward the sinner beside you when the Spirit prompts you, or simply from Gospel principle, you need more prayer.
+
+Second is vocation, your ministry in Christ's body: apostle, prophet, teacher, miracles, healings, helps, governments, diversities of tongues, pastor, evangelist, or another grace-given operation. When soul winning presents itself, hang your special mantle on a nail. Winning the lost comes first.
+
+Third is occupation, the work that puts food on the table. When occupation and vocation are the same, that is glorious, as they are in my life. When they differ, will prayer separate you to your occupation as powerfully as to vocation and soul winning? Yes. God cares about all three.
+
+If you do not care about winning souls, how can He bless your vocation? If you do not care about your service in the kingdom, why should occupation come ahead of it? When the Holy Ghost can purge and order all three, God cares as much about your occupation as the other two.
+
+## God Desires the Prosperity of the Whole Soul
+
+Third John 2 says:
+
+> Beloved, I wish above all things that thou mayest prosper and be in health, even as thy soul prospereth.
+
+This is the earnest desire of John's heart. God wants us to prosper and possess the health to enjoy that prosperity. But both are tied to prosperity of soul.
+
+I asked God what soul prosperity meant. Did it mean character purified until money no longer owned me, but became a servant to God's kingdom and my needs? Yes, it includes that. Then He outlined the soul's attributes: mind, will, intellect, and emotions.
+
+Joy is a fruit of the Spirit, while happiness is a fruit of joy. I can have joy in prison while being beaten every day because Christ is my joy, though I would not be happy about the beating.
+
+God taught me again that emotions are not dismissed but turned. Romans 12 says to offer the body as a living sacrifice, refuse conformity to the world, and be transformed by renewing the mind. Conformity uses what already exists; transformation changes the person so thoroughly that when the devil comes looking, the man who once lived there is gone.
+
+The renewing of the mind includes emotion, not merely changing intellectual beliefs. A stronghold is a system of thoughts empowered by emotion, and it is not broken until the emotions turn away from it. Phobias can enslave the reasoning mind. Childhood abuse can send roots into adult relationships and produce involuntary reactions. God desires healing and transformation in this part of the soul too.
+
+He wants you to prosper, to rise from a wheelchair, and to possess the resources to preach the Gospel. He also wants you to wake each morning content, breathe in the day, and anticipate its moments. He wants emotional prosperity as earnestly as bodily health.
+
+## The Wrong Occupation Can Imprison an Otherwise Faithful Life
+
+Many people are trapped in occupations they hate. I worked at a mill because God sent me to Oregon and I loved its outdoors, streams, hunting, and fishing. But I did not enjoy the mindless work of sorting boards and operating machinery.
+
+I still did it for the Gospel and my family. I worked harder than almost everyone, accepted overtime and Saturdays, and honestly requested leave when I wanted to attend a distant tent meeting rather than falsely claiming sickness. Because I worked hard, the bosses granted it. My coworkers called me "Preach," and I followed them everywhere with the Gospel, even into the smoke-filled break shack.
+
+I possessed the Lord's joy, but the mill was not my occupation in the deeper sense. My true occupation was the same as my vocation.
+
+Many of you faithfully work dead-end jobs to feed your families, yet spend spare time on hobbies you love. Here is what is unhealthy: you call the hated job your occupation and the loved work your hobby. Perhaps you are being paid for the wrong one. The thing toward which your heart continually pours may be an indication of your God-designed occupation.
+
+If you loved the work from morning to night, giving would become easier because earning would no longer feel like exchanging blood and misery for every dollar.
+
+Prayer in tongues can bring the right occupation forward because God desires that your soul prosper.
+
+## God's Predestination Includes the Work Prepared for Your Life
+
+I am fifty-two. If I discovered tonight that a physician's heart was in me, I would begin making the necessary changes immediately. If training took ten years, I would become a good doctor at sixty-two and perhaps practice until eighty. Loving the work would remove stress rather than shorten my life.
+
+Do not merely embrace misery and call yourself a good soldier while money holds you hostage. A whole life can change in a few years.
+
+Before you were born, God knew you. Ephesians 1 says:
+
+> According as he hath chosen us in him before the foundation of the world, that we should be holy and without blame before him in love:
+>
+> Having predestinated us unto the adoption of children by Jesus Christ to himself, according to the good pleasure of his will.
+
+God did not predestine only a select few to salvation; through the cross He provided salvation for the world. The fact that He planned redemption before the foundation of the world also reveals that He knew the first calling, vocation, and occupation prepared for each life.
+
+Romans 8 says the Spirit helps our infirmities, searches the heart, and makes intercession according to God's will. Then all things work together for good to those who love God and are called according to His purpose. If you are swimming upstream in work never designed for you, misery is understandable. Prayer releases the plan already known to the Spirit.
+
+## Genesis Shows Distinct Aptitudes Woven Through Humanity
+
+Genesis 4 describes different human aptitudes:
+
+> And Adah bare Jabal: he was the father of such as dwell in tents, and of such as have cattle.
+>
+> And his brother's name was Jubal: he was the father of all such as handle the harp and organ.
+>
+> And Zillah, she also bare Tubal-cain, an instructor of every artificer in brass and iron.
+
+Some people love animals, plants, horticulture, and the outdoors. Others are born with music in them. You can teach some people piano for thirty years and still suffer when they play; others learn the basics and seem able to hear everything. Worship, song, and musical instruction pour naturally through them.
+
+Others are craftsmen, builders, computer designers, and inventors. Their minds continually construct. Alongside these natural aptitudes is our priestly calling in God.
+
+The Holy Spirit is the earnest of our inheritance, God's down payment guaranteeing the purchased possession. He ensures that we can receive a glorified body, inherit the new creation, and fulfill God's will in this life. If we pray in tongues, He begins aligning occupation, vocation, and soul winning.
+
+## Entering Full-Time Ministry United Occupation and Vocation
+
+I still do not know the full extent of my vocation. I have worn the hats of evangelist, teacher, and pastor. I hope to continue fathering men of God, receiving them from other nations, and going with them into nations. Such spiritual fatherhood cannot be elected by ambition. God must give its authority; it becomes something you are.
+
+I do remember the day my occupation and vocation became one. At thirty, after a vision in which I saw myself preaching, I honorably gave the mill two weeks' notice.
+
+Fear came during those first months because I was not yet grounded in faith. But on the first morning after leaving the mill, I walked half a mile to an eight-by-eight-foot prayer room. I thought that if I prayed the same hours I had worked, perhaps God would somehow provide a paycheck.
+
+The sun seemed brighter and the birds louder. I entered the room, opened my Bible, knelt, and said, "Can this be? Do I get to order my time and spend the whole day in prayer and the Word, doing what my heart has always desired, and be supported in it?"
+
+I felt as though I had died and gone to heaven.
+
+For twenty years I preached about twenty-five times a month, sometimes traveling to several camp meetings in a week. Never once did I tire of walking out and opening my Bible. I did not burn out; I burned in. In twenty-two years I never missed a service because sickness made me unable to enter. That is testimony to my Father, not boasting. A life filled with my God-given occupation and vocation made a young man of me at fifty-two.
+
+## A Loved Aptitude Can Become a Life-Giving Enterprise
+
+Suppose you love plants but spend every day programming computers until carpal tunnel develops. Your home and office are full of plants; you talk to them and know how to make them thrive. Yet you are paid for work you dislike because it provides a house, cars, and clothes for the children.
+
+What would I do? I would gather my family and say, "Can we work together this next year? Can we keep our cars longer, pay down credit cards, reduce expenses, and make room for me to study horticulture at night?"
+
+Because I loved the subject, I would devour it and graduate near the head of the class. Once expenses were reduced, I could accept less pay to work in a greenhouse. I would excel, eventually buy or start a greenhouse, breed hybrids, discover new varieties, train an excellent crew, write books, open franchises, and lecture around the world.
+
+Wherever I went, I would tell how God moved me into my occupation as I loved and served Him. Giving would be joyful because I loved the way the money was earned.
+
+When you walk in God's plan, His wisdom enters business decisions. God wants resources funneled into the kingdom. When people ask what made you successful, you can say, "He has a name." Religion alone will not produce that life, but knowing Him in the prayer closet will.
+
+## The Spirit Knows the Plan and Intercedes Us Into It
+
+The Holy Spirit purges spirit, soul, and body, then separates us to first calling, vocation, and occupation. He alone received the plan from the Father, and He lives inside us.
+
+When I do not know how to pray, the Spirit says, "If you permit Me, I have God's plan for you." He searches the heart and makes intercession according to God's will. Then Romans 8:28 comes into operation: all things begin working together for good according to His purpose.
+
+Have you found your place in the body of Christ? God desires above all that you prosper, possess health to enjoy it, and have the peace, joy, and happiness that come from extracting everything Jesus provided from each day.
+
+## Deliberate Meditation Equips the Spirit for Practical Wisdom
+
+How do you equip yourself for wisdom? Read Proverbs fifty times, deliberately and precisely. Focus enough to understand every word and verse, not initially trying to extract a special revelation, but ensuring that you understand what you read.
+
+For example:
+
+> The sluggard is wiser in his own conceit than seven men that can render a reason.
+
+Seven men can explain why he should work and care for his family, yet the sluggard has an excuse for every one. Read slowly enough to grasp the statement.
+
+I have reached the end of a chapter and realized that my lips read while my mind wandered. I made myself return to the last verse I remembered reading attentively. At first, you may advance only a few verses before catching yourself and returning. Continue.
+
+Read Proverbs this way fifty times before concentrating on individual studies. You are equipping your spirit for day-and-night meditation. Nothing in life involving human nature lies outside the wisdom stored there. The Holy Spirit can reach into that well while you drive, gather the relevant passages, and give you the answer.
+
+Look up every unfamiliar word so its meaning fits into the verse, chapter, and book during subsequent readings. After the repeated readings have formed an outline within you, individual studies become fruitful because the Spirit can use a passage in chapter 29 to illuminate one in chapter 4.
+
+Thus begins the journey into God's wisdom and the mind of Christ for daily affairs, human relationships, and godly prosperity.
+
+Stand, and let us worship God.

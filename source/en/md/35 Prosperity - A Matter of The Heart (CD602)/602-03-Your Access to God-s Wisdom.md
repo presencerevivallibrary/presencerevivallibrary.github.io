@@ -1,0 +1,203 @@
+# Your Access to God's Wisdom
+
+Turn to Luke 16:8, and I will give a little review.
+
+The eighteenth verse of this chapter deals with marriage, remarriage, and adultery. On Sundays we have been doing a study on the legal rights of marriage, divorce, and remarriage, what constitutes the right to remarry, and the legal aspects of it. It has been one of the most fantastic studies I have ever done in terms of digging into the Word of God and listening to the Holy Ghost.
+
+However, while meditating continually through this verse in Luke 16, God began to wake up other principles about a servant's heart and prosperity. In getting into one message, He got me into another. I do not mind at all.
+
+So we have been studying from Luke 16 and 17 on a steward's heart, a servant's heart, and what really constitutes God's prosperity.
+
+As I began, the Spirit interrupted:
+
+For those things that have been explored from time to time and from generation to generation concerning the things of My Spirit, things your forefathers have seen from time to time, but for the most part things locked up on traditional trails and hidden from My children, know this, saith the Spirit: I have wealth laid up for you that has been uncovered by no other generation.
+
+I have laid it up against these last days for those who will allow Me to purge them in character, give them a servant's heart, and move big on their behalf. There are those I am separating to Myself now, those I will season, try, and prove in a refiner's fire of faithfulness. Then I will outpour My Spirit, yes, My Spirit, the power to get wealth, that I may establish My covenant as never before in this generation.
+
+Therefore rejoice, saith the Spirit. I will unfold mysteries and show you secrets that few have seen. You will walk in My Spirit, and I will make you free indeed.
+
+Glory to God. That was worth waiting for.
+
+Your forefathers saw only a little of what He wants to get over to this generation. He has untapped reserves and wealth laid up for you and me against this day. The test we must pass is the character test.
+
+I want to be right in the middle of this great last-day move, whether financing it or preaching it.
+
+Luke 16 says:
+
+> And the lord commended the unjust steward, because he had done wisely:
+>
+> For the children of this world are in their generation wiser than the children of light.
+>
+> And I say unto you, Make to yourselves friends of the mammon of unrighteousness;
+>
+> That, when ye fail, they may receive you into everlasting habitations.
+
+When your life on this earth as a steward is over, "they" means every person who has become your friend because you used the power in money to get them born again. They are laid up in heaven as treasure on your account, and they will receive you into an everlasting habitation.
+
+Jesus differentiated between the child of darkness and the child of light by calling the child of darkness wiser in his generation than the child of light. That was an indictment against my faith. Christ Jesus has been made wisdom unto me, yet Jesus said that when it comes to using money, the child of darkness has been wiser.
+
+Jesus would not call a child of darkness wiser than a child of light without showing the child of light how to become wiser. That is what the next words deal with:
+
+> And I say unto you...
+
+He is about to give us the revelation that will make children of light wiser in our generation than any child of darkness ever dreamed of being. I meditated on this ninth verse until my meditator almost fell out on the ground. If this verse will make me wiser than a child of darkness when it comes to handling the power in money, then I want to know these golden words of wisdom.
+
+He says, "Make to yourselves friends" by using the power in temporary wealth. When your life on this earth is over, every person who is saved because of your proper use of temporary wealth will receive you into everlasting habitations.
+
+They will be waiting for you to walk in.
+
+Do you understand what Jesus is saying? Your business means nothing to Jesus unless you have placed it between hell and the people trying to get there.
+
+The unjust steward had enough sense to use the power in money to cancel debts against his rich man so that he could move in with those debtors when his stewardship ended. Jesus is saying, as a child of light, you should have enough sense to use money to cancel people's debts against God, which is the sin question.
+
+The whole human race was enslaved by sin through the first man, Adam. He placed us into a debt to God that we could not pay. God is saying that if you use the power in money to cancel people's debt against God by getting them born again, He will make more wisdom available to you than you ever dreamed possible.
+
+Does your business stand between hell and people trying to get there? Does your salary stand between hell and people trying to get there? Does your whole life, everything you are and everything you constitute, stand between hell and people trying to get there?
+
+I have a call of God on me. I have a vocation in the kingdom. I am called to teach, preach, lay hands on the sick, move in miracles, and prophesy.
+
+Some of you have a dual vocation. You are called to helps, ministries, governments, and to run corporations. You have a vocation in the world and a vocation in the kingdom. Your vocation in the world is always under subjection to your vocation in the kingdom. If your vocation in the world does not serve your vocation in the kingdom, you have the laws backward and will not be blessed.
+
+But if your corporation stands between hell and people trying to get there, then you will acquire a new business partner. He is full-blooded Jewish, and He will make money for your company. His name is Jesus, and He will give you more wisdom than you ever dreamed possible, because of God Christ Jesus has been made wisdom unto us.
+
+What makes that wisdom available to me? What I want to do with the money.
+
+I do not have trouble knowing I am the righteousness of God in Christ. I am. Righteousness is a breastplate and a force. In times past, before I knew how to walk in faith very well, the devil would beat on my shield of faith until it fell. I would be standing there with only the breastplate of righteousness, and he still could not talk me out of my salvation.
+
+I found out that righteousness was not by my works, lest any man should boast. It was a free gift of God. Christ Jesus has been made righteousness unto me, and it is a dominant force that governs my life. Even if I do not feel righteous, I know I am.
+
+But the same verse that says Jesus was made righteousness unto me also says He was made wisdom unto me.
+
+> But of him are ye in Christ Jesus, who of God is made unto us wisdom, and righteousness...
+
+If righteousness is a force, then wisdom is also a force just as available to me as righteousness. His wisdom is just as available to me as His righteousness.
+
+Proverbs says wisdom cries at the chief places of concourse, the busy intersections of the city where merchants run back and forth making business deals. Wisdom stands in the chief places of business and cries, "You simple ones, how long will you love simplicity? How would you like to step over into My wisdom?"
+
+There is no bad business decision you have ever made where wisdom was not standing there crying out, waving red flags before you entered the gate of error.
+
+His wisdom is as available as righteousness, but what constitutes its use in the area of finances? Jesus says the children of this world were wiser because they used the power in money to serve their final end. If you want wisdom that makes you wiser than any sinner ever dreamed, you too must use the power in money, temporary wealth, unrighteous mammon, to make friends by canceling people's debts against God.
+
+Luke 16:9 says the same thing Deuteronomy 8 says:
+
+> It is the Lord thy God that giveth thee power to get wealth, that he may establish his covenant...
+
+That covenant goes back to Abraham, Isaac, and Jacob: that Abraham's seed would number as the sand of the sea and the stars of heaven, and in his seed all families of the earth would be blessed.
+
+The Lord gives power to get wealth because He wants to establish His covenant. If you use the power in money to make friends who are received into everlasting habitations, then part of that power is His wisdom.
+
+His wisdom is more to be desired than fine gold. The income of wisdom is better than the revenue of silver, because when you spend silver it is gone. But if you have wisdom, you have the tree.
+
+Proverbs says:
+
+> I wisdom dwell with prudence, and find out knowledge of witty inventions.
+
+Benjamin Franklin found that he could tap into the creative ability of his inner man better when he was on the edge of consciousness. I have found that to be true too. Many revelations I preach come to me at the moment I am drifting off to sleep, because at that moment my mind is no longer subject to predetermined avenues of doctrine. For a moment it is released into the hands of the Holy Spirit, and He takes advantage of it to slip revelation in.
+
+There is a wellspring of life inside each one of you worth more than all the gold of this world, if you learn how to tap into it for the right reasons.
+
+Do you know how to tap into the wellspring? I can give you a bucket.
+
+Hello, tongues.
+
+> For if I pray in an unknown tongue, my spirit prayeth...
+
+If you want a bucket to pull from the wellspring, praying in tongues is that bucket.
+
+Wisdom says, "I lead in the midst of the paths of judgment," or right decisions, "that I may cause those who love me to inherit substance, and I will fill their treasures."
+
+There may be a main path that is easy to walk by the senses. Then the path narrows and splits. One path looks better because it runs by a river. Another looks like desert. Another is partly desert and partly green. By the senses, you would take the one by the river, not knowing it crosses the river and dies in the desert. The path that looked dry may swerve around and return to the river.
+
+How would you know which path to take outside of wisdom?
+
+Wisdom leads in the midst of the paths of judgment, causing those who love her to inherit substance and filling their treasures.
+
+Did God really give this wisdom to you the same way He gave righteousness? Yes. His wisdom is just as available as righteousness, and she cries at the chief places of concourse. But in prosperity, the criteria is this: you must use your wealth to cancel people's debts against God, the sin question.
+
+That makes more wisdom available to you than the sinner ever dreamed of walking in. He does not have the Holy Ghost. You do. You have a hotline to God. You have His wisdom.
+
+One of the greatest things that ever happened to me was getting hold of Kenneth Hagin's tape, "I Am the Righteousness of God in Christ." Up until that time I was ultra-holiness and had strayed into legalism. When we got into trouble, we ran away from God instead of to Him. I think I was born again at least once a week because those preachers could always dig around in my life until they convinced me I was not saved.
+
+Then I heard that Jesus was made sin for me, that I might be made the righteousness of God in Christ. Hagin introduced me to substitution and identification. Surely He bore my sicknesses and carried my pains. He substituted Himself in my sicknesses and pains, and now I identify with the health of Jesus Christ. He went down into the lower parts of the earth so I might ascend into heaven. The chastisement for my peace was upon Him, and with His stripes I am healed.
+
+He bore my poverty. Paul says:
+
+> For ye know the grace of our Lord Jesus Christ, that, though he was rich, yet for your sakes he became poor,
+>
+> That ye through his poverty might be rich.
+
+He identified Himself with my poverty and substituted Himself in it so I can identify with His wealth.
+
+Those substitution and identification teachings set me free. When I began to see from Scripture how available His wisdom was, I wanted to know what He substituted Himself in so that I might have ready access to His wisdom. What did He become in my place so that in any decision, in any corporate boardroom, I would know how to access His wisdom?
+
+I found it in Isaiah 53, the greatest substitution and identification chapter in the Old Testament:
+
+> Surely he hath borne our griefs, and carried our sorrows...
+>
+> He was wounded for our transgressions, he was bruised for our iniquities:
+>
+> The chastisement of our peace was upon him; and with his stripes we are healed.
+>
+> All we like sheep have gone astray; we have turned every one to his own way;
+>
+> And the Lord hath laid on him the iniquity of us all.
+>
+> He was oppressed, and he was afflicted, yet he opened not his mouth:
+>
+> He is brought as a lamb to the slaughter, and as a sheep before her shearers is dumb, so he openeth not his mouth.
+
+There Jesus stood before Pilate. For all general purposes before God, He was on trial in my place. He had substituted Himself for me so He could receive the judgment that belonged to me.
+
+He refused to open His mouth and offer any defense on His own behalf, so that you and I would have the right, when the devil pulls us before his throne and puts us on trial for something Jesus has already redeemed us from, to open our mouths and give the wisdom He would not give when He was judged in our place.
+
+Every time the devil drags you on trial and says, "I am going to kill you with this disease," you can open your mouth and offer a defense because Jesus refused to open His mouth when He was judged in your place. You now have access to all the wisdom He refused to give.
+
+He bore your poverty. He already failed in business for you by receiving your judgment. Now you do not have to fail because you have access to the wisdom He would not give.
+
+John 1 says:
+
+> He was in the world, and the world was made by him, and the world knew him not.
+
+In His deity, He understood the molecular structure of the cross He was crucified on. There was no question ever dreamed or conceived that He did not already have the answer for. Wisdom was with Him before anything existed. Yet when He received judgment in your place, He refused to give that wisdom.
+
+Now, when the devil pulls you on trial for something Jesus has already been judged for, you have the right to open your mouth and give the wisdom He would not give.
+
+What makes that wisdom available? Placing your business between hell and people trying to get there.
+
+The children of this world are wiser in their generation than the children of light. But Jesus said, "I say unto you," and then gave the spiritual insight that makes you wiser than the devil's children ever dreamed of being: use temporary wealth to cancel people's debts against God by getting them born again.
+
+He gives power to get wealth to establish His covenant with Abraham, Isaac, and Jacob, the covenant of Jesus, that through Abraham's seed all families of the earth would be blessed. If you work with God, you will make far more in your business with Him, even while giving billions away, than you would ever make without Him.
+
+As we conclude, the Spirit spoke:
+
+Down many paths I desire to walk with you and cause you to eat the good of the land before I am through with you. Begin with rejoicing and worshiping Me, and through My presence I will activate My anointing. It is My anointing that will guide you and set you free.
+
+Place your feet upon the rock of doing My sayings, and listen to the pressure of your enemy no more. You will see that I will instruct you in your giving, and I will give you back more and more. There are many things I desire to teach you, capacities and abilities lying within you that have yet to wake up.
+
+Listen not to the enemy. Be bold. Step out in faith, and you will see, saith the Spirit of grace, I will bring to you the victory. Fellowship with Me, learn My ways, and learn to hear My voice. You will see that in many areas where you failed, I even gave you choices.
+
+Make the right choice this day and give your life completely over to Me. I will make more blessings in every area of your life than you dream possible, for I am the Lord God who set you free.
+
+Now let me spell out one of the oldest traps:
+
+"God, if You help me make a million dollars next year, I will give You two or three hundred thousand of it."
+
+No, you will not. If you will not give thirty cents out of the dollar in your pocket now, you will not give three hundred thousand out of a million then.
+
+Character development does not slip upon you overnight. Three hundred thousand dollars looks much bigger than thirty cents on the dollar. If you start now by giving, by serving God with what you have, your character and faith will develop all the way because you have made your life and business a servant to the kingdom. You have made yourself available to wisdom.
+
+Will there be a fight of faith? Sure there will.
+
+"I cannot afford to give twenty percent now."
+
+Then you will not be able to afford to give two hundred thousand later. You will not be maintaining pintos then; you will be maintaining Rolls-Royces. You will not be sweeping water off your sidewalk; you will be changing the filter on your pool. When the two hundred thousand is needed, it will be eaten up just like your twenty cents is eaten up now.
+
+To become a true servant, you must begin to serve Him with what you have now. Take your faith on the level where it is operating and give it a corresponding action. Begin to serve Him with your money by saying, "It is not much yet, Lord, but use it to cancel people's debts."
+
+As your faith increases by fighting the devil off and walking down the right path of judgment, you will receive more because you will give more.
+
+His wisdom has been made available to me because He refused to open His mouth and give the wisdom that was in Him when He stood trial for my failures. When He bore my poverty, He failed in business for me. He could have succeeded. He was the wealthiest man in the world in wisdom, but He received my judgment.
+
+Now He has made wisdom available for your business to succeed incredibly, because it is your right.
+
+What makes that wisdom available? What you do with the money.

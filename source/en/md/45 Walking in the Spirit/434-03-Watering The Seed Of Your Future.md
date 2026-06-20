@@ -1,0 +1,501 @@
+# Watering the Seed of Your Future
+
+As we get done with you, my friend, you will know how to walk all the way into the perfect plan of God for your life on purpose, just because you want to go in there.
+
+Romans 12:1 says:
+
+> I beseech you therefore,
+>
+> brethren,
+>
+> by the mercies of God,
+>
+> that ye present your bodies
+>
+> a living sacrifice,
+>
+> holy,
+>
+> acceptable unto God,
+>
+> which is your reasonable service.
+
+The word "therefore" means, "Based on something I have already said, I am about to say this."
+
+Verse 2 says:
+
+> And be not conformed to this world:
+>
+> but be ye transformed
+>
+> by the renewing of your mind,
+>
+> that ye may prove what is that good,
+>
+> and acceptable,
+>
+> and perfect,
+>
+> will of God.
+
+Somehow, the offering of my body as a living sacrifice results in nonconformity to this world and transformation by the renewing of my mind, so that I can prove first the good, then the acceptable, and finally the perfect will of God.
+
+Mark 4 says it this way: thirtyfold, sixtyfold, and a hundredfold. Good, acceptable, perfect.
+
+The question is, what good, acceptable, and perfect will is He talking about?
+
+We know He is speaking of not conforming to the world, but being transformed through the renewing of the mind. So we know He is talking about no longer thinking like the world thinks, but being transformed and renewing our mind to think like God and like the Word thinks.
+
+He is talking about transformation through the Word of God and conforming to it.
+
+But I also know through meditation that He extended this a step further. When He talks about the good, acceptable, and perfect will of God, He is talking about the good, acceptable, and perfect will of God for our personal lives.
+
+Some people find good and never leave it. Others find acceptable and never leave it. But others find perfect.
+
+There is something in me that will not live with good and will not live with acceptable. If I see more in the Word of God, this thing in me will not rest until we have it.
+
+Many people do not find good, acceptable, and perfect, not because they are not hungry for God, but because the enemy comes in with deception and stops them, and they do not know how to go any further.
+
+There is no worse death that I can think of than a slow death of living this life craving and thirsting after God and never being taught or coming to the place where that hunger is quenched.
+
+Please give me my day in court. If I fail, do not let it be because the truth was never preached to me. If I fail, let it be my decision. Let it be because somebody preached it to me, showed me what to do, showed me how to find this perfect will, and then I rejected it. Do not let me fail because somebody put me in a holding tank and stripped me of it.
+
+He is talking about good, acceptable, and perfect will in two realms.
+
+First, He is talking about your personal transformation to the Word of God: healing, righteousness, your walk with God, worship, praise, faith, and the basic things of faith.
+
+Second, He is talking about the good, acceptable, and perfect will for your personal life.
+
+Romans 12:3 says:
+
+> For I say,
+>
+> through the grace given unto me,
+>
+> to every man that is among you,
+>
+> not to think of himself more highly than he ought to think;
+>
+> but to think soberly,
+>
+> according as God hath dealt to every man
+>
+> the measure of faith.
+
+Grace is the unmerited, unearnable favor of God bestowed on you and me. Paul is about to make a statement based on the unmerited favor he received.
+
+Romans 12:4 says:
+
+> For as we have many members in one body,
+>
+> and all members have not the same office:
+>
+> So we,
+>
+> being many,
+>
+> are one body in Christ,
+>
+> and every one members one of another.
+
+Verse 6 says:
+
+> Having then gifts differing
+>
+> according to the grace that is given to us.
+
+In context, he is saying that you and I are individual members in a vast body called the body of Christ. We are members one of another, of the same body, having gifts that differ from one another, not by our choosing, but by the unmerited, unearnable favor of God.
+
+In eternity past, God separated you and me to our respective calls according to predestination. He gave us an office to fulfill in His body by grace.
+
+Every man, woman, and child ever born in Alaska, India, Africa, or anywhere else, had in God's perfect will a place to fulfill in the body of Christ.
+
+When He says the offering of your body as a living sacrifice results not only in nonconformity to the world but transformation to God, He is talking about good, acceptable, and perfect in the area of your individual call in a vast body called the body of Christ.
+
+Paul says, "I say to you according to the grace given to me." He is speaking out of his apostolic office.
+
+He says you ought not think of yourself more highly than you ought, but think soberly according to the measure of faith God has dealt to every man.
+
+What is he saying?
+
+"I have an apostolic office, and I was separated to my office, which differs from yours, by the grace of God. I have grace differing according to the measure God dealt to me. I am about to speak to you out of the grace given to me, my apostolic office."
+
+You ought not think of yourself more highly than you ought because it was unmerited, unearnable favor, you outfit.
+
+Why are you going to think you are something because you are the one up here preaching? I am no more nothing up here than you are no more nothing sitting in your chair.
+
+Helps and governments are just as important as the apostle, the workings of miracles, the teacher, and the pastor. Every one of them is important. No man ought to think of himself more highly than he ought because you did not choose your calling. God did, by His unmerited, unearnable grace.
+
+So throw away your pride and humble yourself. Your office was given to you by God.
+
+Paul gives us the standard to think by:
+
+> According as God hath dealt to every man
+>
+> the measure of faith.
+
+I asked those who seemed to be somewhat among them what the measure of faith was. They said, "We are not sure whether it is a measure or the measure."
+
+I thought, "What difference does that make if you cannot make either one work?"
+
+Who would dare to call Jesus Christ a liar? When He moved through Paul and said you and I have received the measure of faith, I would be the last one on the face of the earth to tell Jesus I did not receive my measure of faith.
+
+But what is a measure of faith, and why does He call it a measure?
+
+He is talking about the same thing as in 1 Corinthians 13 when he says we know in part, but when that which is perfect is come, we will know even as we are known.
+
+We have a single part in the body of Christ to fulfill. You are not able to operate in my vineyard, no more than I can operate in yours. I may not even understand how yours operates, unless perhaps I am an apostle who has to establish all these ministries.
+
+Below an apostle, I may not even know how your office operates. I have no business over in your vineyard. That is why He gave you helps, governments, teacher, or whatever He gave you.
+
+I may operate in workings of miracles, but He may not have separated you to that office. We all know in part. One day we will understand the whole operation.
+
+If you take a pie and divide it into three measures, each measure is one-third of the whole, and the three measures make one whole. If you divide a pie in half, it consists of two measures of one-half each, and the two measures make one whole.
+
+The body of Christ consists of many measures, and each one of you fills one of those measures. All the measures working together make one whole, a devil-stomping, mountain-moving body of Christ when it functions together.
+
+You have your measure. I have mine. Helps, governments, counselors, diversities of tongues, intercessions, levels of intercession, different measures, different equippings for your office. All of you have been delivered a grace.
+
+You have been separated to a measure in the body of Christ and given a measure of faith. God has instilled in your spirit enough faith to fulfill your call, not mine, yours.
+
+You can finish your course. He has guaranteed it because He has deposited it on the inside of your spirit.
+
+That is what you are going to be judged by.
+
+"Jesus, I did not have enough money to go to Mexico."
+
+"Did I tell you to go?"
+
+"Yes."
+
+"Then why did you not go? Do you mean your measure did not include enough faith to believe it in?"
+
+God gave severally according to every man's ability. He gave you the faith to fulfill your call.
+
+That is why some of you try to jump out there and operate above it, but you cannot. You do not have the faith for someone else's call. You have the measure of faith for yours.
+
+The faster you find out what your call is, the faster that faith is going to begin to work for you. When you are flowing with God, you are not swimming upstream anymore. You are swimming down.
+
+If you have been delivered the measure of faith, and you have, and if you have been separated by God and by His grace to an office different from mine, then why do so many people flounder around almost aimlessly, defeated, from one place to another?
+
+There is a very small percentage in the body of Christ who actually fulfill their ministries to full potential.
+
+Why?
+
+God deposited that measure of faith on the inside of your spirit in seed form. Like any seed that is planted, along with your rebirth, when God deposited the incorruptible seed on the inside of your spirit, it carried a diagram and a program.
+
+If you take a kernel of corn and crack it open, you may not see a stalk of corn in there. But the image that corn seed carries is for a whole stalk and several ears of corn on the stalk. All of that is programmed and diagrammed on the inside of that seed.
+
+When you were born again of incorruptible seed, that seed carried the program deposited in your spirit, not only for what your ministry is to become, but everything He called you to do.
+
+Included in that measure of faith is the faith to receive any blessing redeemed for you through the cross. Not only your personal call is in there, but everything Jesus made provision for is in there. It is all there.
+
+But like any seed, it is deposited in seed form.
+
+Mark 4 says seed was sown on wayside ground, rocky ground, thorny ground, and good ground. In many instances, the seed was choked out, took no root, was scorched, or died. The good ground produced thirty, sixty, and a hundredfold.
+
+That is good, acceptable, and perfect will again.
+
+The Word of God, the incorruptible seed, and that measure have been deposited on the inside of you. If your ground is parched and dry, it is very hard for the seed to germinate. It can do very little in your life.
+
+If you are caught up in the world, the cares of the world, the lusts for other things, and the deceitfulness of riches, it chokes the call of God out. It can do very little.
+
+But there is a way you can throw water on your seed. The twin sister to throwing water on the seed is meditation of His Word.
+
+Jesus said:
+
+> He that believeth on me,
+>
+> as the scripture hath said,
+>
+> out of his belly shall flow rivers of living water.
+
+How would you like to learn how to water your seed on a daily basis, cultivate it, and pull the weeds out?
+
+He likened the Holy Spirit to water. Every time you pray in tongues, you are throwing water on, germinating, cultivating, and nurturing the seed so that the image in it will come out.
+
+That includes your call.
+
+Romans 12 says:
+
+> I beseech you therefore,
+>
+> brethren...
+
+When you see "therefore," you had better see what it is there for. It means what he is about to say is based on something he has already said.
+
+When Paul asks you to offer your body a living sacrifice, he would not ask you to do that had he not already told you how to do it in a previous chapter.
+
+"Therefore" means, "Go on, offer your body. Receive transformation. Fulfill your grace. Fulfill your call. You have the measure of faith. Offer your body a living sacrifice, and you will experience these things."
+
+When I see "therefore," I want to go back and dig into the previous chapters to find out what he based that incredible statement on.
+
+I have tried to offer my body in the flesh. Have you ever tried to give something up in the flesh? You decided not to be mad at someone, and it came back on you.
+
+There is a better way.
+
+Romans 8:21 says:
+
+> Because the creature itself also
+>
+> shall be delivered
+>
+> from the bondage of corruption
+>
+> into the glorious liberty
+>
+> of the children of God.
+
+All creation is crying out to God in a form of intercession. It cries out because of imperfection. Every atom subjected to imperfection by the fall of Adam is crying out to be delivered from the bondage of corruption into the glorious liberty of the children of God.
+
+Verse 22 says:
+
+> For we know that the whole creation
+>
+> groaneth and travaileth in pain together until now.
+
+Verse 23 says:
+
+> And not only they,
+>
+> but ourselves also,
+>
+> which have the firstfruits of the Spirit,
+>
+> even we ourselves groan within ourselves,
+>
+> waiting for the adoption,
+>
+> to wit,
+>
+> the redemption of our body.
+
+Those of us who have been born again and filled with the Holy Ghost groan within ourselves, waiting for this entire adoption process to be completed at the redemption of our bodies.
+
+Meanwhile, while we are in an imperfect creation and in a body still capable of sinning, He gave us the Holy Spirit to help our weaknesses and infirmities.
+
+Romans 8:26 says:
+
+> Likewise the Spirit also helpeth our infirmities:
+>
+> for we know not what we should pray for as we ought:
+>
+> but the Spirit itself maketh intercession for us
+>
+> with groanings which cannot be uttered.
+
+The Spirit helps our infirmities, our weaknesses in the flesh, our inabilities to produce results because of the limitations imposed on us by this body.
+
+Verse 27 says:
+
+> And he that searcheth the hearts
+>
+> knoweth what is the mind of the Spirit,
+>
+> because he maketh intercession for the saints
+>
+> according to the will of God.
+
+He that searches the heart knows the mind of the Spirit. The word "mind" means the plan of the Spirit.
+
+It is the same plan that God, the Holy Spirit, and Jesus sat down in eternity past and planned concerning creation and redemption. Every generation has a different facet to the plan. Each generation is working toward the entire plan.
+
+When He says the Holy Spirit searches the heart and knows the mind of the Spirit, He is personalizing the plan. He knows God's mind toward this generation, toward Tulsa, toward Union Street, toward your individual life.
+
+He is the only One qualified to make successful intercession for your life according to the will of God, which is where you fit in His plan, His mind for you.
+
+You can come in on Wednesday night and pray two hours in the Holy Ghost. You do not know what you are saying, but He does. He knows your ministry to the end of your life. He knows your great call. He is the only One who knows it.
+
+He requires you to walk by faith. You may have a feeling of the end of your ministry, but your computer would not hold all the particulars between now and then. If He told some of you what He wants you to do at the end of your life, you would say, "My God, nobody could do that."
+
+He knows the entire plan of God and is making intercession for you as an individual.
+
+Romans 8:28 says:
+
+> And we know that all things work together for good
+>
+> to them that love God,
+>
+> to them who are the called according to his purpose.
+
+If you are not flowing with His purpose, which is your call in His plan as an individual, then all things cannot work together for your good. You will flounder around in good and acceptable.
+
+There are whole denominations captured by the devil in only the good. They remain saved, keep a testimony, and serve God only to the degree that they can say, "I am saved."
+
+Is good acceptable? There is perfect.
+
+All things will not work together for your good unless you are attempting one phase at a time to work His plan for your life.
+
+There is no such thing as passively sitting in church and doing nothing and being happy. You will go back to the world to supply or satisfy the hunger inside. You will either try to kill it or feed it.
+
+Some of you have been aboard trains that were not going anywhere. That is why you left. You knew that ten years from now you would be doing the same thing.
+
+If you hang around here, I am going to whip you back into prayer every time you get out. A lot of us do not have enough self-discipline to do it because the things of this life are a little heavier.
+
+I want all things to begin to flow together for good to those who love God and are called according to His purpose.
+
+What is His purpose? The culmination of all things. Does He have a plan toward that end? Yes. All creation is crying and travailing for it. We who have the firstfruits are groaning inside our righteous spirits, and He is helping our infirmities.
+
+We are so limited, yet we have the Holy Spirit. He has the whole blueprint, and He has your life in that plan. He can work your life according to His purpose.
+
+Praying in tongues is not the only key, but it is a major key to turn the Holy Spirit loose into your future.
+
+Have you ever bought futures? You might buy futures on corn stock because corn may go way down, and you will still get the price you paid now.
+
+When you pray in the Holy Ghost, you are purchasing futures. The Holy Spirit runs out ahead of you and works things together for good to those who love Him and are called according to His purpose.
+
+Why do you think the devil has gotten so many people out of prayer? Go look at them and see what they are doing now.
+
+Most of us have the concept that the leadership of the Spirit means God attaches Himself to us and wants to lead us in every little aspect as though we had no free will.
+
+Some people talk as though they do not even buy a loaf of bread unless the Holy Spirit tells them which loaf to buy. They do not get in the car unless He tells them to. They do not do anything unless He tells them.
+
+Then we attempt to be spiritual.
+
+But spirituality is a man who has been seasoned in the fruit of the Spirit, in longsuffering, forgiveness, peace, righteousness, and understanding.
+
+Does God lead me? Sure He leads me by the Spirit. He talks to me all the time. But He talks to me about things pertaining to the Spirit.
+
+Sometimes we get into super-leadership. The problem with that is that most of us are so immature and emotional that we cannot sort anything out. We get led off into the wild blue yonder and do not mature very far.
+
+When I began praying in the Holy Ghost in the early days, my prayer life fluctuated. Sometimes I locked up for six or seven hours a day. Other times I hardly prayed for a month or two. Other times I prayed an hour or two a day.
+
+I was condemned half the time because I had not prayed much the week before and wondered if God would use me that week.
+
+The most amazing thing to me was that once I went two or three months hardly praying at all, got out there, and He used me just as strongly as when I was praying.
+
+I thought, "I am confused. Why are You doing this?"
+
+That is when He taught me a valuable lesson.
+
+God does not fellowship with the cubicle hours you spend locked away in the prayer closet. You may think that if you go between seven and eight every morning and lock yourself in that cubicle of time, then at eight o'clock you come out and feel good about the day. But if something happens Friday morning and you do not make it, you feel condemned.
+
+The fellowship He has with your person is not with those four cubicle hours you spent in the closet. What He fellowships with is the change the prayer produced in your life.
+
+If you only prayed one day last year and it produced a little change, He comes in and fellowships with that. He does not condemn you for the times you did not pray.
+
+The same thing is true with fasting. When you esteem it no longer a sacrifice, you will quit bragging about it. He does not fellowship with your sacrifice. He does not delight in sacrifice; He delights in obedience. But He will fellowship with what the fasting produced in your life by way of change.
+
+When you quit esteeming prayer as a sacrifice, or being proud of your cubicle hours of prayer, you will quit running around bragging about them. God fellowships with the change it produces, and He will take any prayer time you can give Him.
+
+In those early days, I was praying in the Holy Ghost and preaching in halls. Sometimes I slept in them until the fire marshal ran us out. Sometimes I spent the day in the car praying. I was working the plan of God and did not know it.
+
+How did His leadership come?
+
+You cannot miss it if you keep praying in the Holy Ghost. All of a sudden, the seed germinates, and pretty soon you can see what kind of seed is coming out.
+
+He will instill direction in your spirit. If you are supposed to go and do a work in Mexico, it will get dropped in there, and it will come out of the seed. The more you pray, the more it waters and grows until the feeling is not just a passing thing.
+
+If you are not sure, do not go. This thing will take you over and consume you until eventually, if you keep praying, you cannot think or do anything else about it. Finally you have to pack your bags. Money does not matter. Nothing matters. You have to quench that craving because the direction comes on you and stays, getting stronger and stronger until you cannot help but walk in the direction of it.
+
+You will not miss it unless you get carnal.
+
+It has been a long time since God told me what pair of shoes to wear or what car to take. However, the other day I was in the office, in prayer, and opened the curtain. I did not know how to pull it up or get it down. I worked on it for about fifteen minutes and finally sat down in my chair with the sun beating in the window.
+
+I said, "I give up. God, that curtain."
+
+He said, "Why do you not pull one string at a time?"
+
+I pulled one, and it went right up. Generally, your wife can tell you what suit people are wearing these days.
+
+As I was praying in the Holy Ghost, the Lord told me what to do with some fasting, and I entered into phase two.
+
+About the time I entered into phase two, we started having camp meetings. They were fourteen or sixteen months old and running 1,400 people all over Oregon. They came into little Medford, Oregon, way out in the middle of nowhere, for the camp meetings.
+
+Then I was invited to preach in a district near Los Angeles, where I first ran into Bob Yandian and invited him out to the center.
+
+I had just entered phase two. God was starting to use me where people were falling out in the crowd and receiving miracles. I had heard rumors about Bob Yandian. You heard it so much that finally I said, "Nobody can be that good."
+
+I went to a meeting where he was ministering. When Bob got up and began to exhort, expound, and open the Word, by the time he was done, I looked like a deflated Santa Claus.
+
+We went out to eat. He is basically shy, and I do not say much generally, so he was not saying anything, and I was not saying anything. The pastor was trying to tell him about my ministry, and Bob just said, "Mm-hmm."
+
+He finally came to our camp meeting. Right at that time, the desire from praying and fasting in my spirit to move to Tulsa became intense.
+
+I kept hearing people say that Rhema graduates who stayed in Tulsa were wrong, and I was thinking, "No, this has to be the flesh." So I would put it down, and it would grow back. I would put it down, and it would grow back.
+
+I even went to Portland and rented a building because we were going to move our headquarters to Portland, Oregon. I had it rented and everything. I had to cancel it.
+
+Finally, after laboring all day in the Holy Ghost and praying, God spoke something that shook me up. He said, "Son, if you miss Me, it will cost you four years of your ministry."
+
+Bob came when I had just entered phase two. I was ecstatic like a child. I was calling people up in groups, and the Spirit was telling me what was wrong with them. Sometimes whole groups would fall under the power.
+
+That first morning, Bob insisted that I teach. He sat down with his yellow pad and pencil, waiting for me to say something. Fear was gripping me. My vocal cords were stretched tight.
+
+I squeezed through the message, and pretty soon I started him writing. I saw him write some notes and thought, "He must have liked that." Then the Holy Ghost fell. The Lord began showing me what was wrong with people, and whole groups were falling under the power.
+
+We went to dinner. He was very quiet.
+
+He said, "Tell me something, Brother Roberson. What do you attribute that anointing to? Does it just show up, or was that a special sovereign move?"
+
+I said, "Oh no. He shows up like that all the time now."
+
+He was quiet for a moment and said, "What do you attribute that to?"
+
+We traded tapes. Pretty soon I got a telephone call. Grace was the largest church in Tulsa, and all I had ever done was crawl around on my hands and knees in halls in Oregon.
+
+They said, "Brother Roberson, we would like you to come and preach at Grace."
+
+I was reduced to a quivering mass of nerves.
+
+Bob met me for dinner and said, "I have to tell you something. Look at me. God told me you are supposed to move to Tulsa."
+
+I said, "I know it. I know it."
+
+So I moved to Tulsa because I could not get away from the leadership of the Spirit.
+
+Within a year, I found myself preaching on the platform that six or seven months before I would have paid a thousand dollars just to hold the sweaty coats in the back room. Our tape sales went from five or six hundred dollars a month to twenty thousand dollars in a month.
+
+I spent many dusty hours, many times in the car praying, going anywhere He sent me, working day and night and not caring.
+
+I get the biggest kick out of preachers who come out and say, "Where am I going to preach?" They start soliciting churches. They want believers to listen to what they have to say and pay them, while the whole world is going to hell.
+
+If you want to get paid, go preach.
+
+"Where?"
+
+Skid Row is waiting. Street corners in other cities are waiting. Go get a hall and run an ad in the paper. Get some lost people saved.
+
+God is not going to pay you unless you are fulfilling your call or working toward it.
+
+Prayer in the leadership of the Spirit, by offering your body a living sacrifice, will work the plan of God in your personal life by creating a strong anointing.
+
+First John says:
+
+> The anointing which ye have received of him
+>
+> abideth in you,
+>
+> and ye need not that any man teach you:
+>
+> but as the same anointing teacheth you of all things,
+>
+> and is truth,
+>
+> and is no lie.
+
+You will increase that anointing stronger and stronger until His leadership grows not only in direction but in call.
+
+I have seen miracles in my spirit, and they have never gone away. You will not have to wonder what He called you to do. It will grow on you like a tree if you remain constant in prayer, worship, and meditation of His Word.
+
+Do not go to a church where they do not whip you back into prayer. You need it.
+
+Can people find it without prayer? Sure. You can have anything from God if you can believe Him for it. It does not matter how you got to believing Him. You can do anything for God and go anywhere if He sends you and you have faith.
+
+But I am telling you biblical principles that take you from where you are on purpose, where you fail, to where He said you could be.
+
+We are part of a team. Some people stop coming to prayer because they say, "There is more to things than just praying."
+
+Listen to me. By the time you deliver yourself enough from the flesh that you can work in the programs and not cause us problems, you will be like the man who asked R. W. Schambach, "Do you think God will ever use me?"
+
+He said, "Ever use you? My God, He will work you to death."
+
+There are enough of us to go around. Would you please hurry?
+
+Remain faithful. When direction begins to come, take it. Begin to work into it. Present yourself. You can always tell people who are building their career in the kingdom of God instead of offering their gift as a servant. They bounce around the churches. If you do not exalt them, they do not want to come.
+
+They are building their ministry instead of the body.
+
+I do not blame you for wanting to be used. I want you to be used. If you think you are not going to be used, you had better hang on. Remain faithful a little longer, and you will say, "My God, use me?" He will work you to death.
+
+Right now, you need to have enough faith to direct your energy in prayer for the present time.

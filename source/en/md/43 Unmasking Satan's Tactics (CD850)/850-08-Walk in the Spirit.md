@@ -1,0 +1,459 @@
+# Walk in the Spirit
+
+We began some five weeks ago studying how to work God's plan for your life and what the devil uses to stop that plan. We studied imagery, imaginations, and exalted things against the Word that the devil uses.
+
+We finally ended up in Mark 4, because Mark 4 is a tremendous parable that teaches the weaponry Satan uses to choke the Word of God out of our lives.
+
+We found out the subject of Mark 4:
+
+> The sower soweth the word.
+
+That was the subject. The objective was how you and I, as believers, can guard against these five weapons: persecutions, afflictions, cares of this life, deceitfulness of riches, and lusts of other things.
+
+It teaches how to guard against these five things and produce up to a hundredfold walk with God based on His Word.
+
+In the weeks past, we covered persecutions and afflictions. I think we had a lot of fun studying the cares of this life. Then we got into the deceitfulness of riches and scared the tar out of some of you.
+
+We found out that Jesus was more concerned with the condition of the heart than even with how much you gave. We explored the grip the power in money has on the character of a person, and we brought out examples as only Jesus could give.
+
+Then we graduated to the last force the devil uses to remove the Word of God out of our lives: the lusts of other things.
+
+In review, persecution comes from without. The cares of this world are weights that come from without. If Satan cannot get you with those three, then he switches to the last two, which he holds in reserve.
+
+The deceitfulness of riches comes from within because it is a defect, a mar in the character. Finally, the last pressure from within is the lusting after other things.
+
+We covered some men of God and the different reasons men fall. The reason the devil reserved the lusts of other things as the last force to remove the Word of God out of you and me is that this force can wear us down.
+
+Many men have survived persecutions, afflictions, and cares. You could not buy them. You could not deceive them with riches. But the last one got them: the lusts of other things.
+
+That is where we left off last night, exploring why the lusts of other things are such a powerful force to remove the Word of God out of you and me before it can produce the answer we need.
+
+We found out the reason: you and I are existing in a body given to us by the first Adam.
+
+Our spirit man has been born again. It is a new creation. It is in the express image of Jesus Christ right now. It has entered into life, Zoe, the God-kind of life: past, present, future, eternally existing in a Zoe kind of life.
+
+But this body was given to me by the first Adam, not the last Adam. It has yet to undergo change.
+
+I am waiting for the sound of the trumpet when this body will change in the twinkling of an eye from corruptible to incorruptible. As of yet, it has not changed. It is capable of sin, and it will be capable of sin until the day you put it in the grave or the trumpet sounds.
+
+That is why He says:
+
+> Walk in the Spirit,
+>
+> and ye shall not fulfil the lust of the flesh.
+
+Your body, empowered by Satan, has a long time to war against you. In fact, it has all your life. Even though you may win over the others and outlast them, this last one, the empowerment of the flesh and lusting after other things, will be with you until the trumpet sounds.
+
+If you do not learn how to walk in the Spirit, you will not have the degree of victory He has made available to you and me.
+
+I feel like a bloodhound that has smelled victory. I feel like the devil has a big problem: me.
+
+I do not want the lusts of other things warring at me until they finally dominate, until I give the Word of God second place in my life, until they wear me down to defeat. I do not want that.
+
+So if He said, "Walk in the Spirit, and you will not fulfill these wars," then for God's sake, what else could a man want out of his life but to know how to walk after the Spirit?
+
+All the others lie behind that.
+
+If you ever really learn how to walk in the Spirit and put this flesh in the place it has been declared, then everything Jesus said you are free from, and brother, that is a load: sickness, disease, poverty, afflictions, cares, everything He said you are free from, you will eventually walk out of it.
+
+You will also walk into everything He said you are, and there is a whole Bible full of what He said you are. One of them is more than a conqueror.
+
+My hair stands on end when I hear Him saying:
+
+> Greater is he that is in you,
+>
+> than he that is in the world.
+
+It ought to cause your hair to stand on end when you hear:
+
+> Behold, I give you power
+>
+> over all the power of the enemy.
+
+If these sayings are so, and you know they are, who among you would call God a liar?
+
+Then there must be a way to walk after His Spirit. The Spirit gets involved with my spirit to get that power He said is greater out of me and onto the problem. There must be a way to walk after His Spirit until this flesh does not have the final say-so.
+
+It will not tell me how much I will pray. It will not tell me how fat I will be. It will not tell me anything. When it rises up, I have one word for it: shut up.
+
+You say, "I would like to do that, but my flesh walks all over me."
+
+That is why He says:
+
+> He that hath suffered in the flesh
+>
+> hath ceased from sin.
+
+A minor degree of that suffering is when you push the cherry pie with ice cream away. A major degree is when you turn the other cheek and let someone slap the fire out of it. But both are flesh.
+
+Romans 8:13 says:
+
+> For if ye live after the flesh,
+>
+> ye shall die:
+>
+> but if ye through the Spirit
+>
+> do mortify the deeds of the body,
+>
+> ye shall live.
+
+> For as many as are led by the Spirit of God,
+>
+> they are the sons of God.
+
+> For ye have not received the spirit of bondage again to fear;
+>
+> but ye have received the Spirit of adoption,
+>
+> whereby we cry,
+>
+> Abba, Father.
+
+> The Spirit itself beareth witness with our spirit,
+>
+> that we are the children of God:
+>
+> And if children,
+>
+> then heirs;
+>
+> heirs of God,
+>
+> and joint-heirs with Christ;
+>
+> if so be that we suffer with him,
+>
+> that we may be also glorified together.
+
+> For I reckon that the sufferings of this present time
+>
+> are not worthy to be compared
+>
+> with the glory
+>
+> which shall be revealed in us.
+
+It is through the Spirit that you mortify. We have not received the spirit of bondage, corruption, and fear. On the contrary, we have received the Spirit that causes us to cry, "Abba, our Daddy God," out of our spirit.
+
+The Holy Spirit is bearing witness with my spirit that I am His child. No matter how bad the corruption, fear, and bondage of the flesh get, and no matter how heavy it gets, it did not come from God.
+
+The part that did come from God is the Spirit's witness with your spirit that causes you to cry, "Abba, You are the Father of my spirit."
+
+His Spirit bears witness with ours that we are His children, heirs of God, and joint heirs with Jesus.
+
+But joint heirs to what?
+
+The suffering He is talking about there is not car wrecks and diseases. It is that I am imprisoned in a body that is dying and capable of sin. But that tiny witness made me a joint heir with Jesus, a joint heir to the resurrection.
+
+He has risen. He has been glorified. I am a joint heir with Him.
+
+A lifetime of the sufferings this flesh causes, warring against me, is not worthy to be compared to the moment of joint heirship, when this flesh gives way to glorification and is out of range of all that kind of suffering.
+
+That tiny witness on the inside told me all that. It said, "You are a child and an heir and a joint heir with Christ. Go ahead and dominate the flesh. A lifetime of that kind of suffering is not worthy to be compared to the moment joint heirship takes place and you receive a body fashioned exactly like Jesus' body."
+
+Meanwhile, you are wearing that old outfit. Your beauty is fading day by day. It wants to sin at times, and it makes you suffer. But take Jesus' Word for it: dominating this flesh and all the suffering it causes cannot begin to be compared to the moment of glorification.
+
+The greatest reward a man could have is to stand in the presence of Jesus and say, "I have run the race. I have completed what He called me to do, and my flesh failed to stop me."
+
+According to these verses, your flesh will war against you. Do not worry about it. You are a joint heir with Him, and because He has risen, so will you.
+
+I have a glorified body laid to my account. It is on my account. Just as Abraham whipped the devil on accounted righteousness, I have a glorified body on my account, even though this body is not glorified yet.
+
+I am whipping the devil on credit because I know I have one on my account.
+
+If the devil could be whipped by Abraham on accounted righteousness, I can certainly whip the devil on accounted glorification.
+
+It is through the Spirit that you mortify the deeds of the body. That is to say, you are empowered to bring them to a dead standstill, no matter how much suffering they cause. You have more power in the Spirit than your flesh has over you.
+
+"It does not feel like it."
+
+What are you doing, calling the Word a liar again?
+
+"I have been whipped for twenty-one years."
+
+You have been whipped while still having more power than your flesh. It says through the Spirit you can mortify.
+
+If you have ever been in any of our meetings, you know what mortify means: mortician, mortuary. If a mortician has prepared you for an overnight stay in a mortuary, your flesh will not give you any more trouble.
+
+When He says it is through the Spirit that you can mortify, He is saying you can bring this stuff to a dead standstill.
+
+If the Spirit has all that power, and we know He does, then why have most of us fallen to one form of religion or another that agreed with the flesh instead of opposing it?
+
+That is the most clever tool the devil has.
+
+"Well, sister..."
+
+"Yes, devil."
+
+If she knew it was him, she would slap the fire out of him. "Do not call me sister."
+
+But God is not saying that disease came on you to teach you something, or that when you get flat on your back you can look up, or that you needed to be humbled.
+
+The devil says, "Eat it up, sister, eat it up."
+
+Religion will cause us to turn to a lesser form of gospel, and usually it agrees with the flesh. It is easier to walk that way than this way.
+
+Most of us, even men of God, will search the Word of God to find things that agree with our doctrine. We do not want to conform to the Word. We want to conform it to us and our ideals.
+
+If He says it is through the Spirit that you can mortify, then for God's sake, would somebody tell me how to get the power out of here and onto the problem now? I am tired of sickness, disease, poverty, and every other damnable thing He said I am free from dominating me.
+
+Romans 8:18 says:
+
+> For I reckon that the sufferings of this present time
+>
+> are not worthy to be compared
+>
+> with the glory which shall be revealed in us.
+
+Verse 19 says:
+
+> For the earnest expectation of the creature
+>
+> waiteth for the manifestation of the sons of God.
+
+All creation is waiting in anticipation for the manifestation of the sons of God. It would behoove us to stop and see what he is talking about.
+
+How many of you have heard of the doctrine of the manifested sons of God?
+
+It is quite the doctrine. First you run around like you are, then pretty soon you join a specialized group, and there are several things you have to do. One is that you must be baptized in the name of Jesus or you will not be one of them. Father, Son, and Holy Ghost is not enough.
+
+Then if you become one of the elite manifested sons of God, one day you will be walking along minding your own business, and some great anointing will fall out of heaven on you and make a superman out of you. You will run around manifesting sonship everywhere.
+
+Then some started preaching that you are not going to die. They called themselves "no dies." They said, "We are not going to die," but they kept dying. They just said the ones who died were in unbelief.
+
+Then they started preaching that He is going to come in our flesh, build higher and higher, and come to full glorification in our flesh, and we will just pass over.
+
+What amazes me is how they got all that out of there.
+
+What I hate is what Jesus hated: His sheep being in bondage. He hated it. He said, "You hypocrites, you vipers, you snakes. You cross land and sea to make a proselyte, and when you make him, he is twofold more a child of hell than yourselves. You devour widows' houses, then pray and hide behind religion to cover it up."
+
+That is how I feel when His sheep are taken.
+
+What are these manifested sons of God?
+
+Romans 8:23 says:
+
+> And not only they,
+>
+> but ourselves also,
+>
+> which have the firstfruits of the Spirit,
+>
+> even we ourselves groan within ourselves,
+>
+> waiting for the adoption,
+>
+> to wit,
+>
+> the redemption of our body.
+
+"They" refers to all creation subjected to corruption by the fall of Adam.
+
+Not only creation, but we ourselves, who have the firstfruits of the Spirit, groan within our righteous spirit, waiting for the adoption process to be brought to completion.
+
+When will the adoption process be made complete?
+
+At the redemption of our bodies.
+
+He says we have the firstfruits of the Spirit. Why would He say firstfruits if there were not going to be second fruits somewhere down the line?
+
+There is going to be a second fruit.
+
+We who have been born again, received the Holy Spirit, become the righteousness of God in Christ, and entered into the Zoe God-kind of Spirit life, the image of Jesus, have received the firstfruits.
+
+All of you and I groan out of our righteous nature while we pass through this life, waiting for the entire adoption process to be made complete.
+
+God served adoption papers on you when you were born again. But that adoption will not be made complete until the redemption of your body.
+
+As of now, I possess a spirit that has been born again, spawned from the loins of the last Adam, that life-giving Spirit, that quickening Spirit, Jesus Christ. I used to have a spirit given to me by the first Adam. Then I met Jesus, and now I have been born of the last Adam, not the first one.
+
+But I am still wearing a body given to me by the first Adam.
+
+That is okay. The adoption will be made complete at the sound of the trumpet, when I am spawned from the loins of the last Adam, not only with a new righteous born-again spirit, but with a glorified body. At that point in history, I will be spawned from the loins of the last Adam, spirit, soul, and body.
+
+I will be a manifested son of God, totally and completely born of that last Adam, Jesus Christ.
+
+That is a manifested son of God. It is when your body changes hands from the first Adam to the last, when the adoption process is made complete. That is what all creation is waiting for. Creation is waiting to be delivered from corruption and bondage into the glorious liberty we are going to experience.
+
+He says those of us who have the firstfruits groan within our righteous spirit, waiting for this whole process to be made complete.
+
+Listen closely. He said I am empowered by the Spirit of God to mortify this flesh. Through the Spirit, you are empowered to bring the deeds of this body to a dead standstill. The lusts of other things will have no power over you.
+
+But how does the Spirit do this?
+
+We have discovered a verse that says I am groaning within my righteous spirit while I am imprisoned in a body, waiting for the redemption process to take place and the adoption to be made complete.
+
+That makes me know that my prayer language, my groanings in the Spirit, my intercessions, have something to do with the mortification of my flesh.
+
+He said, "Son, this is what you need to do while you are waiting for the adoption process to be made complete."
+
+Why would He tell me to do that if it did not help me?
+
+I have found it to be help, more help than I could probably stand here and tell you about.
+
+There have been times when I had my back up against the wall and did not have enough strength to fight my way out. Like Paul said:
+
+> When I am weak,
+>
+> then am I strong.
+
+When I have been forced to switch my dependency from the flesh to the Spirit, even if it was by force, I found out I was strong. I am not a loser. I am a winner.
+
+I have had my back up against the wall so many times that I had no strength to fight in the natural. After a while, I did not even want to. I was groaning in my righteous spirit, those words of eternity, tongues, escaping out of me, my heart dictating the prayer.
+
+Somebody says, "I think we should get a big list of all the things I am going to pray for."
+
+You can do that, but He will pray for what your heart is dictating anyway. Out of the abundance of the heart, the mouth will eventually speak.
+
+The devil will take, or God will take, the problem that is governing your heart and dominating your life, and that problem will empower the language of tongues. That is what you are going to pray anyway. He answers the desires of your heart. He answers your heart.
+
+You can make lists and say, "I am going to pray for the lost," because you think it impresses God. You will get your share of praying for the lost if you just pray, but still your heart is going to govern your prayer.
+
+If your flesh is dominating you, what do you want? Do you want out of it or not? Your heart is going to dictate your prayer.
+
+You have not had anybody pray for you until you have had the Holy Spirit pray for you. As much as I respect the ministries in here, there is still One I would rather have pray for me, because He knows the beginning of my problem from the end, and He knows why my flesh is whipping my socks off.
+
+The man who says, "I do not have time to pray," even though his problem is pressing, is the man who really does not want to be delivered.
+
+Romans 8:26 strengthens this:
+
+> Likewise the Spirit also helpeth our infirmities:
+>
+> for we know not what we should pray for as we ought:
+>
+> but the Spirit itself maketh intercession for us
+>
+> with groanings which cannot be uttered.
+
+The Spirit helps our infirmities, our inabilities to produce results because of the flesh. When we do not know how to pray as we ought, our Champion steps in. He makes intercession for us in a supernatural language that cannot be uttered.
+
+He knows the whole plan and mind of God, and He prays according to that plan for your life. That plan says you are free from this and delivered from this, and you are into this. He is praying that you be set free from every damnable thing Jesus said you are free from and into everything He said you are.
+
+Your flesh should be feeling punier all the time.
+
+When I was first born again, it was in ultra-holiness. God bless those people.
+
+The saints used to testify all the time. There was one particular testimony just long enough for them to stand up and sit down:
+
+"I am glad I am saved, sanctified, and filled with the Holy Ghost."
+
+We had a doctrine of saved, sanctified, and filled with the Holy Ghost.
+
+I said, "Which one is first?"
+
+"Saved."
+
+"Which one is second?"
+
+"Sanctified."
+
+"Which one is third?"
+
+"Filled with the Holy Ghost."
+
+I said, "How about getting saved, filled, then sanctified?"
+
+"Oh no, you cannot do that. Sanctification is a definite second act of grace."
+
+They said sanctification was when the Spirit came in supernaturally, and you were supposed to seek it at the altar. Suddenly the power of God would come on you in sanctification. They called it a definite manifestation of the Spirit, and you would be totally cleansed from all your dirty old habits: tobacco chewing, whiskey drinking, smoking, going with girls who do. You would even be delivered from girl watching, at least for a few minutes.
+
+Some men sought sanctification for twenty-three years. "Every time I think I have it, I go home and find out I still have thoughts and things."
+
+Well, I still have them. They just do not have me.
+
+You would lie if you told me birds did not fly over your head. The problem is when some of them build nests in your hair and stay there.
+
+Very few people went on to get the Holy Ghost because they had to be sanctified before they said it would do you any good to seek the Holy Ghost.
+
+I slipped in there and got myself sanctified enough, I guess, to get filled with the Holy Ghost, because He came on me. I did not know why He came on me, but He did. I started stammering and stammering.
+
+One of the ladies said, "He has stammering lips."
+
+I thought, "She is right. They are stammering."
+
+I finally talked in tongues. But to tell you the truth, I never thought I would get filled with the Holy Ghost.
+
+God really had to give me an experience. At about one in the morning, I had my arms raised and was walking around the front room praising God. My wife prayed, "God, make him talk with tongues so long he cannot even catch his breath."
+
+The power came into my hands. When it got to my chest, I fell out.
+
+What I did not know was that when they told me sanctification was cleansing from drinking, smoking, chewing, and all those other things, they had it backwards.
+
+It says it is through the Spirit that you mortify.
+
+You do not clean up to get good enough for God. He is not the One who needs your help. You need His. If you could get good enough to get Him, you would not need Him. He comes in to supply the power for you to clean up with.
+
+It is through the Spirit that you mortify.
+
+Now we are finding that the prayer language of the Holy Spirit is the major key to this mortification.
+
+Why? Number one, because it edifies you. To edify means to build you up on your most holy faith. It actually anoints you to understand the Word of God.
+
+How does faith come?
+
+> Faith cometh by hearing,
+>
+> and hearing by the word of God.
+
+If I am anointed to understand the Word, we are going to have the battle.
+
+Jesus says, "I bore your sicknesses and carried your pains, and I delivered you from your filthy habits."
+
+Pretty soon, the anointing, the illumination to understand it, is born in my spirit. It is called edification.
+
+Through the Spirit, I mortify. When that power rises up, look out, hell. You are not going to have me very much longer.
+
+Through the holiness teachings we were receiving, they said, "If you are sinning, God will not hear your prayers."
+
+It was not that I was sinning willfully, but ugly things had a hold of me that I did not want to have a hold of me. I did not know how to get rid of them. So when these ugly things dominated and I wanted help but did not know how to get it, they told me I was too ugly to get help.
+
+Where did that leave me?
+
+"Well, I have to clean up."
+
+How do you do it? In your own strength because He will not hear you because you are ugly?
+
+What have we done to people?
+
+I got filled with the Holy Ghost. Some even doubted I was filled because of a pipe. On the way to church, I would have it in the car, puffing on it. After a little hellfire and brimstone, I would throw it out the window on the way home. A lot of good that did; I would just buy another one.
+
+I did not have enough strength to go the whole gauntlet for God until the Spirit gave me the revelation of the love of God.
+
+Scaring the hell out of me did not do any good. Condemnation trips did not do me any good. Those things do not give you power.
+
+What caused me to run the whole gauntlet was when I found out that I was the righteousness of God in Christ, and there was One who was head over heels, lovesick over Dave Roberson. That is Jesus.
+
+He is an ever-present help in my times of trouble. He is, always will be, and shall always remain the best Friend I have ever had.
+
+He was not set for my destruction. He has always been my strength. The devil had lied to me.
+
+When I found that out, and I was filled with the Holy Ghost, I started praying in tongues even though I had tobacco breath.
+
+If you could not put it down before in your own strength, then you might as well wait on God. The confession of my mouth was that I had been delivered from that ugly thing, that ugly temper, too much television, too much time being taken, yelling at your kids, and doing it all wrong.
+
+I had been delivered.
+
+I used to not want to pray in tongues because I smoked the pipe. What I would do continually under the instruction of my elders was pick fruit off my flesh tree. I knew it was wrong, but because nobody told me how to destroy the root, it would continually grow back.
+
+Then I found out it is through the Spirit that you mortify. The more I prayed in tongues, the more I was anointed to understand. The more illumination and revelation came, the more He charged me up on the inside like a battery.
+
+One day the edification, faith, and power were in me, and I got stronger than the tree. I killed the root, and the pipe dropped off because of the strength on the inside. I harvested it for good.
+
+Poverty eating your socks up? The devil will use that force to neutralize you if you will take it.
+
+When I prayed in tongues, He edified me to understand. By an act of grace, Messiah became my poverty. It is given unto me. It is not just outward forms of flesh anymore. It is empowerment of the Spirit, and the highest hell can do about it is going to fall off.
+
+I do not care what your problem is.
+
+Some of you are in turmoil. Some of you are living in adultery. That is bad sin. One thing you cannot figure out is why you still feel the promptings of the Spirit.
+
+What power is there to mortify you?
+
+Even if you do not feel like praying, even if your mind has degenerated to the place where you do not even want to and would rather sin, do it by an act of your will.
+
+Pretty soon the light that is almost out will come back on. It will get bigger. As He anoints you to understand, the frames of your thinking will begin to change until you finally at least have the strength to want to walk out of it.
+
+Starting now.
+
+The lusts of other things entering in choked the Word and rendered it unfruitful before it could produce your answer.

@@ -1,0 +1,398 @@
+# The Spirit of Religion I
+
+Why don't you open up to 2 Peter 2. We are going to pick on something.
+
+Hallelujah.
+
+I told you that in Palm Springs, when I got a glimpse of His glory out of my spirit, we began to find out what Jesus meant when He said, "I have glorified You, Father. I have finished the work You gave Me to do." That glorified His Father.
+
+Then we found out who glorifies Jesus. The Holy Spirit was sent to glorify Jesus, and Jesus said He does that by receiving of Mine and showing it unto you. So when I slipped into the Spirit and saw Jesus in all of His glory for just a moment, I knew that glory comes from the Holy Spirit being able to reveal Him.
+
+In that revealing of Him, it is like peeling layers off an onion, one layer at a time. It is line upon line, precept upon precept. You cannot put walls up where there is no foundation. You cannot put a roof up where there are no walls. This thing is line upon line.
+
+The born-again trail is a result of the walk of the Spirit, the walk of power. It began with discovering that praying in tongues would deliver me into the power of my calling and would also reveal the mysteries of Christ.
+
+At a certain point, walking in the Spirit produced this mystery: the understanding of the born-again trail, which is actually the gospel. Layer after layer of the onion is being peeled off, and now I am getting to see God as in the born-again trail: worship as in the new nature, fasting as in the new nature, and on and on.
+
+Now a layer has come off where I got to see God in His glory. To be truthful with you, I almost could not handle the peeling off of that layer.
+
+You want to talk about repentance? Not so much in the area of faults and sins, but in the area of incorrect believing, incorrect precepts, and wrong concepts of who my Father is.
+
+When He began to talk to me out of that new layer of Himself being revealed, those of you who have gone through the process understand. You can lie there for hours and worship Him and pray in tongues, and suddenly revelation begins to take place in your spirit. You start understanding things. The stronger it gets, the more of a dialogue He can have with you.
+
+He showed me an area where He had been blamed for a lot of things.
+
+He said, "You, the church, and your type: you understand that I do miracles. You understand that I raise the dead. You understand these things. Yet you had to create a theology that if it is not done, it is because I did not want to do it, because I am God."
+
+Because He is God, He can do anything. So if He did not do it, the theology goes on and on and on to say it is because He did not want to. He had some deeper purpose in not doing it.
+
+Those letters that followed the canon of Scripture as delivered by the apostles and the founding fathers, on into the second century, were going back and forth between the early churches. A lot of those letters were captured and read. I have copies of many of them. Already they were starting to sing the praises of error.
+
+It was not very long before the Dark Ages followed, which, of course, God planned. He wanted the whole world to fall away from Him in darkness so everybody could go to hell for four or five hundred years. He planned all that, yes, right, just like He planned your disease.
+
+No. The devil came in and basically took it away from them.
+
+We create theology, mostly from isolated verses and things out of context. We really love to go back under the Old Testament and the law so we can find things from the way God dealt with spiritually dead men, things that line up with how we feel, how we think, and how a situation turned out.
+
+It is real easy to go under the old and find the answers we need whenever things are going wrong and God will not move, even though He has delivered you from it.
+
+He said, "I am tired." That is human language I understand for what He was saying inside. He was saying, "You are tired of the white eyes and Me not being able to move, or not moving in the services. But everywhere there is a pocket of believers, there is a potential of Me coming so strong that it will upset the whole city."
+
+Absolutely.
+
+"You do not think I want to? Did you shed your blood?"
+
+Mercy rejoices against judgment because God does not like to do anything until all mercy has been extended. Sodom and Gomorrah were leftovers from the early world, and Peter said God judged them for all those who would live ungodly, to show the end of it.
+
+He said, "You are tired of it." What He meant was this: the church. Century after century, He has watched the church take truth mostly down roads that end up being beneficial to them. I am not talking in a godly, righteous sense. They take it down roads that explain what is happening and mostly by which they will profit. Then there are a lot of other roads, which involve another spirit, which we would have to teach on to understand.
+
+He said, "You are tired. How would you like to go through a cycle of people going so far and stopping, so far and stopping, in a new age, so far and stopping and stopping? You are tired. I am tired of you, the church, holding Me back with your own walk. You are tired of the white eyes. You did not pay the price for them."
+
+He said, "I did."
+
+He is tired of being held back.
+
+But God forbid. Who can teach this way? Who can preach this way to the church as a whole? What do you want to do, lose half your congregation?
+
+With the human race's weakness, we like to run to people who will tell us we are okay when we are not. We like to run to them. If I scattered you into the churches in this town, they would dissolve you into themselves. If you looked around a little bit, you would find one that would let you live right on any level you wanted to live on.
+
+But start saying things like I am saying now: "Yes, He wants to do that, and there is a place in Him where He will do it."
+
+"Well, then why does He not?"
+
+"Because you have not gone to that place where He does it and let Him in."
+
+"Oh, not me."
+
+Yes, you.
+
+Is it a sin? No. He has good, acceptable, and perfect will. Thirtyfold, sixtyfold, and hundredfold. We are at the mercy of teachers, this, that, and the other. But the fact of the matter is, we live in a generation that will be more accountable than any generation before us.
+
+Why? Because of the volume of information available for education per capita, per person. It is higher than ever. We are in the electronic age. The Word of God is at your fingertips in any translation, any language.
+
+Paul said, "Because of the abundance of my revelation," there was assigned to him a strong man straight from the pits of hell.
+
+You could set up at a toll gate and do a survey. Ask everyone, "Who is Jesus Christ?"
+
+"He is the Son of God."
+
+"How many roads do you think there are to God?"
+
+"Oh, there are many roads to God."
+
+They will have their own personal beliefs, but they will know that Jesus is the Son of God. At least that is who they say He is. He is the Son of God, and He came that the world might be saved. I doubt that you would find anybody at a toll gate all day long who did not have that knowledge.
+
+Twenty-five or twenty-six years ago I went down to old Mexico, to Ensenada, and it was funny to me: cardboard shacks built on mounds of sewage or mounds of trash, but every so often there was a television antenna. Same thing in Brazil. No matter how poor people are, the last thing that goes is usually the television.
+
+Even way up the Amazon, there are natives out there selling you "genuine artifacts." As soon as your boat is out of sight, they go change clothes, go downtown, have a nice meal, and go home to their television. They change out of their native attire and put their Levi's on.
+
+One man way up the Amazon, where they had no electricity or anything, had a car battery. Every night, at a certain time, he had to turn the thing on to watch "I Love Lucy" and run the battery down. Then the men would bring new batteries up in the boat, and he would change them so he could catch that program until they came up the next month. Way up the Amazon.
+
+Knowledge per capita is becoming vast. So we are becoming more accountable for what we are hearing and more responsible for it.
+
+When God stepped on the inside and peeled that layer off and let me see Him a little bit more, the thing that really shocked me was the inheritance we had just come into. I mean moving from covenant to sonship, understanding full inheritance, and seeing how much He wants to pour that inheritance out.
+
+He wants to pour it out on us and see a harvest in this world that could only be paid for by His blood. He is standing by with an incredible inheritance to see to it.
+
+One of the accusations, one of the blames He always gets, is the shortage of funds. To compensate for that, men have jumped up, and although they are ambassadors with the full inheritance, they have weakened the kingdom of God by becoming beggars in it.
+
+When I say that, I mean this is where God told me I was judged for a short time. I felt it too, because nothing I did would work. You could go raise money, and your money bags had holes in them.
+
+I got judged because I had a sincere heart, but there was enough that had hold of me that, if I got under pressure, I was willing to resort to things that went against my conscience a little. I could not quite tell what I mean. I was in a time when I was almost two years without prayer, and a strong man was riding me. There are all kinds of nice excuses if a person is looking for them, which I am not.
+
+Why did I do that? Because I was not close enough to God not to do it.
+
+Hallelujah.
+
+Preachers will get out and beg. They are telling you that you belong to an all-powerful kingdom. They are telling you that when you die, you are going to make a passage from death to the other side and to His kingdom, the one that supplies all the needs from. You believe that kingdom you cross over into at death is going to take care of you for the rest of eternity.
+
+So we preach about this all-powerful kingdom, and we are quick to promise you what He will do for you. He will do miracles for your business if He has to. "Give to me because I am doing the thing. I am preaching this gospel. I am the one you give your money to, because I am the one who goes overseas."
+
+So you promise them that if they give to you, He will give to them because they are giving to you. You promise them all kinds of miracles and things. Yet if, for some reason, I cannot get you to give to me, then my project fails.
+
+That is where I got my judgment: promising them that He would do anything for them, while He could not come and do everything for me. I would fail if I could not get the money from you.
+
+It is a real nice trap. They weaken the kingdom by becoming beggars, telling you He can supply every single need, but they are up there begging, and if you do not come through for them, they are failing.
+
+We say, "Well, this is God's system."
+
+No. No. If God will supply your need in a time of crisis, between jobs, with no income, then He should also supply a preacher's need between crowds.
+
+Any preacher who begs and weakens the kingdom has an effect on people. I am promising you He will meet your need. What am I begging for then? Why am I hurting people?
+
+When I started crossing the line, knowing God was not doing everything I was promising them He would do, it became very important to me that He could bless you if you were blessable because you had been giving. That was very important to me.
+
+So that was the day I stood up and declared, "I finally understand Abraham's blessing: His hand has to be on me. He has to be able to bless me. If He can truly bless me under any circumstance, then He can bless anyone who attaches themselves to Him."
+
+In other words, that is open.
+
+I started understanding inheritance a little bit. I thought, "God, how would we ever get the world saved without that inheritance?"
+
+How could we preach to twenty thousand preachers along Brazil and the Amazon who do not have people to attach themselves to? The common thing in places like India and Brazil, where millions live in one city, is that Americans go there and men attach themselves to Americans. In India and places like that, there is downright war. If you go in with one man and then go back with another, you are considered a very valuable piece of real estate.
+
+You cannot blame them. Most of the time those preachers can make enough out of one crusade to support their family very well, have a car and everything, just out of one crusade. Suddenly, next year you are somebody else's property. Can you imagine the war that would take place?
+
+I know all of that because I get to work on the inside of ministries of absolute integrity. I know these things. I knew them anyway in the Spirit.
+
+It becomes a mess, because the love of money is truly the root of all evil. How are you going to take twenty thousand preachers who came in from the Amazon and from the villages of India, where the elephants and tigers roam, and tell them, "Attach yourself to an American. Attach yourself to an Australian"?
+
+How are you going to teach them that they serve a God who will meet their needs in the bush, that He will have a supply anywhere He sends them, and He will go with them? Who is going to teach them?
+
+They learn mostly by watching you. After a while, it is not safe to do what they say, because they know they are tapped into something, and they have very little hope unless they can find something to tap into.
+
+Who is going to teach them?
+
+I am not going to get myself judged again and go teach them something I am not doing.
+
+Then God stepped on the inside. He gave me a reality shock. I was already attempting inheritance, but this was a reality shock.
+
+He said, "I am tired of you, the church, not letting Me in to do what you cannot. The white eyes and all the little children twisted up in chairs: you are tired of it? I am the One who paid the price for it."
+
+He said, in essence, "I am tired of being held back with My inheritance for the saints because of greed. Do you think you are going to get the world won by promises you make to each other? I have an inheritance here. I have an inheritance."
+
+For crying out loud, Jupiter has a storm raging on it bigger than the earth. It just looks like an eye near the lower part of the planet, but that one storm is bigger than the entire planet earth. The gases and the core of that planet, that is just one.
+
+There is a star out there, a giant. You could put our sun in the middle of it, and its circumference is earth's rotation. That is how big that thing is. It is just sitting up there.
+
+You think God has a problem with resources? People are going to hell by the millions, and you think it is because of resources?
+
+It is not because of resources. It is because, in who He is, He is limited to your and our operation. When He becomes supernatural, it is when we become supernatural with Him.
+
+Faith means you have developed to a place where you can believe what He said He will do and who He is. That is called faith.
+
+He said, "To him that believeth, all things are possible, because I can bring everything I am to you in every realm of inheritance and miracles. You are not going to get the world saved operating in your own programs and in the natural. You are going to have to leave that behind and receive My inheritance."
+
+He said it this way: "If a man does not want to be saved, can I save him?"
+
+I said, "No."
+
+But if we step in and start praying for them, that releases God to move one more degree for them because we pray.
+
+"If they do not want to be healed, can I heal them?"
+
+No. But then again, we may pray for them, and heaven will start another program because we prayed. In that, the corporate structure of heaven will go through something to get next to them, even a visitation like He did with Paul, who was then known as Saul, after Stephen died in intercession.
+
+Stephen's intercession allowed God to drop on the man and capture him for the kingdom of God, at least to have a talk with him.
+
+"I want to know who I am talking to."
+
+"You are talking to He whom you have been persecuting."
+
+"Oh God, I made a mistake."
+
+"That is right. You have been kicking against the pricks."
+
+God could not have visited him had He not gone to another man and gotten his authority. The men who stoned Stephen heard him cry and heard him preach. They heard what he said: "Hold this not to their charge." He made intercession for them, and God took that authority and went after Paul.
+
+Boy, did He go after him.
+
+Is that the way it works? Yes, it is.
+
+People say God is sovereign. He is sovereign. He is sovereign in establishing the tools available to you and me that release Him to move and give Him the right to move.
+
+Yes, sir, He is sovereign. He will sovereignly move for anyone who uses His tools sovereignly. He will come.
+
+"Well, no man is going to get the credit for saving that city. God just did it sovereignly. He just fell on it and started moving for no reason."
+
+Really? Then put up your tools of evangelism. Go home and be a nice guy. Give it all up. You do not have to witness. You do not have to do anything.
+
+If saving every human being were up to God alone, He would just drop on them like He did Saul. But if He could drop on everyone and will not, then that would mean He is a respecter of persons for dropping on certain ones just because He kind of likes them.
+
+No. Absolutely not.
+
+Can He heal a person? No, not if they do not want to be. Now you can pray, and He will begin a process. If you will not turn loose, Jesus will come right into their room and say, "You are kicking against the pricks. Do you not want to be healed?"
+
+You can keep it up until God will do something like that. But for the person who does not want it, and nobody is praying, He cannot do anything except send people who will listen to Him to try to talk to that person. That is what He had been trying to do with Saul, but Saul would just kill them.
+
+"Excuse me, I want to talk to you."
+
+"You are going to die, boy."
+
+And they did.
+
+He said, "I cannot move on the inside of a person because of their will. Whatever level they want to stop Me, they stop Me."
+
+Then He said, "Do you think I want people's money when it is extracted from them against their will? Did you think I want it?"
+
+Does He need it? No. He pulled money out of a fish's mouth to pay taxes.
+
+When you coerce money, you take it from them. You promise them things I will not do, and you know I do not. Most of the people who make it in the business world under your teaching make it because they had the ability to make it anyway. God blesses them as much as He can under the system they are operating under.
+
+But if you took the promise of the blessing and everything else away from them, the same thing would happen to them that happened here. I do not mean we took the promise of the blessing away, but one day we stepped up and said, "You know, it is by inheritance," and taught it. When you found out you were not under law and not under a curse and not under everything else, the giving here dropped by fifty percent. I think it took about one month for it to be chopped in two.
+
+People quit giving by fifty percent when they found out they did not have to.
+
+He said, "Do you love them?"
+
+I said, "Yes."
+
+He said, "So do I. But as long as you were coercing them, and they were giving against their will out of fear of being under a curse, or fear of this or that, they were giving against their own will. They did not want to. When you took that off, they just stopped. That is okay, because they were not really being blessed anyway. So now, if you love them, you will tell them the truth, because I love them, and teach them how to walk with Me."
+
+When I started finding these things out, at first I thought, "What did we do?" Just as when He started turning me from the greed thing and straightening me out, I was thinking, "What did we do? I thought the people would get happy and start giving more."
+
+No. The ones who were doing it against their will just reverted to what they were. They were being blessed the same now as when they were giving, even though they just about quit giving.
+
+I doubt if those people are in here, though. People who do not give usually do not come to this.
+
+He said, "You love them, do you not?"
+
+I said, "Yes, I love them."
+
+He said, "Do you believe I can sidestep all of that and meet your need while they are in the teaching process?"
+
+I said, "Yes, sir, I do."
+
+He said, "That is right. I can."
+
+This is not something new. As soon as men of God found out that the first time they took a crooked offering lightning did not come out of heaven and fry them behind the pulpit, slick operators found a whole new source for getting money out of people.
+
+Not just now. It was in the early church: "supposing that gain is godliness."
+
+I have never heard anything like that in our generation.
+
+He said that those who supposed godliness was gain were destitute of the truth. Destitute means it is absolutely destroyed. There is nothing there. There is no hope in it. Paul adjusted that thing and said that godliness with contentment is great gain. Contentment is a fruit of peace.
+
+Hallelujah.
+
+Here in Peter, and you could go to Timothy and lots of other places, but I am not basically going to go there. It is just that when we got on this glory trail and suddenly a layer came off of God, what can I do? That is when I say, "Oh, glory."
+
+Faith comes by hearing, and hearing by the Word. Now I am hearing in an area and getting faith for an inheritance.
+
+Let us look at a few verses in 2 Peter 2, beginning with verse 1:
+
+> But there were false prophets also among the people, even as there shall be false teachers among you, who privily shall bring in damnable heresies, even denying the Lord that bought them, and bring upon themselves swift destruction.
+>
+> And many shall follow their pernicious ways; by reason of whom the way of truth shall be evil spoken of.
+>
+> And through covetousness shall they with feigned words make merchandise of you: whose judgment now of a long time lingereth not, and their damnation slumbereth not.
+
+Then he went on to Noah, the eighth person, a preacher of righteousness. In verse 6 he said:
+
+> And turning the cities of Sodom and Gomorrah into ashes condemned them with an overthrow, making them an ensample unto those that after should live ungodly.
+
+These things have always entered in. When a man finds out nothing happens to him immediately, and lightning does not fry him in that moment, he goes out and does things. After a while, he starts thinking he is getting by. So on the scale of false preachers and false teachers, he finds a whole new level of merchandising.
+
+Hallelujah, Jesus.
+
+When God stepped inside and started talking to me like that, I had known part of it. But the revelation dropped fully into my spirit: I was the one holding Him outside the perimeter of inheritance. For that matter, any perimeter. I was the one holding Him outside of it.
+
+Like Gary cried out in a loud voice, "My God, it does not feel like I am holding Him back. But You must be speaking the truth, because if I were not holding Him back, He would be in. He said He would do these things."
+
+That is right. He absolutely will.
+
+What thrilled me so much was for the Holy Spirit to shock me with such a reality. It came over me in waves: He can do it. He will do it. Just let Him in on the inside. He will do it.
+
+I was under some of those waves when I came out last Sunday morning, and you shared one of those waves when it came through. People were crying and repenting all over the room, and change was taking place. One would break down and weep, then others, and more. We could not do anything but let the Father step in on the inside.
+
+"Brother Roberson, what can cause us to stop and take us off course? What can cause us to go down those paths besides the continual war of the flesh?"
+
+In uncovering more of God, it automatically uncovered more of the devil. For the first time, I got a real good look on the inside of the nature of that devil that was standing over by the exit sign when God made His first pass and showed me Satan's war machine.
+
+If you remember, about twenty-two people left just after that. Most of them sat on the front row, and it became a joke: "Do not sit on the front. You will be destroyed."
+
+I preached a message, and the strong man was in the service killing it. I did not know how he could create an atmosphere over a whole crowd. We had about half the chairs then. I did not know how he could create an atmosphere over the whole crowd, because he is not omnipresent like God.
+
+But I found out that day how. I preached a message, and no words got out anywhere. I would speak, and it would fall straight to the floor. When I got done, I was heading for the office. I felt like a sheep-eating dog. I felt like I had just died. I did so badly. Every word was fought. Every word.
+
+Somebody said, "Good message."
+
+I knew they were lying. I do not think I had preached on lying yet. I knew they were lying. I felt like saying, "Shut up, liar."
+
+I was partway back when I stepped into the discerning of spirits. I looked over and saw about a six- or seven-foot figure clothed in a Tibetan-looking robe, with a hood over his head, tied with a rope. It was a spirit of religion, a ruler of darkness.
+
+He was over there, and there was a host of devils that traveled with him. He seemed to be kind of a circuit rider, going from church to church to make sure you are not doing anything that will destroy him. If you are, then he will leave a few of those ugly little spirits behind to wear you down until finally you yell, "I am going somewhere where they love me."
+
+They are called rulers of darkness because they guard regions of darkness against invasions of light. People who fast and pray too much, this wicked thing will assign several of those spirits to them to wear them down until they quit. They will slap you so hard you become a real nice guy and go sit in a church somewhere and bide your life.
+
+"Where is the peace?"
+
+It is just ahead, only it is the kind nobody can take away.
+
+The whole atmosphere was charged with these little things, and they were yammering. The twenty-two people left as a result of that service, and they left saying the same little things those devils were yammering in the atmosphere. They were just little copies repeating what they said as they left. Some of them made sure you heard why they left through some other person.
+
+"There is something wrong there."
+
+That is right. There was something wrong. There was a devil in here.
+
+I got back to my office and started coming out of it. I realized I had seen something. I had seen how one of those things can create a presence over a meeting: the spirit of religion.
+
+I know a lot more about that spirit now that God has uncovered Himself, just another layer. If He reveals another layer of Himself, He will certainly reveal another layer of Satan's deception, which He did.
+
+Then I found out what is one of the most powerful spirits.
+
+Let us go over to Matthew 11 for just a moment and look at the strongest spirit that governs people.
+
+I know the early world was destroyed basically because of the epitome of idolatry and homosexuality. Perversion was one of the main reasons for the destruction of the early world. But in Matthew 11, let us go to verse 23.
+
+Jesus said:
+
+> And thou, Capernaum, which art exalted unto heaven, shalt be brought down to hell.
+
+Capernaum was where the centurion built the synagogue for the Jews. It was on the northwest shore of the Sea of Galilee, about eighty miles north of Jerusalem. It was a city that dealt in trade and fishing, with a strong Roman population and well-to-do Jews, and they did pretty well together.
+
+Jesus was describing Capernaum:
+
+> And thou, Capernaum, which art exalted unto heaven, shalt be brought down to hell: for if the mighty works, which have been done in thee, had been done in Sodom, it would have remained until this day.
+
+You know the destruction of Sodom, and for that matter, Gomorrah. Abraham made intercession for Lot, and the angels went in to get him out. The men of the city mistook the angels for men and said, "Send them out, that we may know them." The angels struck the ones beating on the door with blindness.
+
+Do you think blindness stopped them? No. They just groped around in the dark trying to get the door down to get in to these young men.
+
+Lot said, "I have two daughters who have never known men. I will give them to you."
+
+They did not want the daughters. They wanted the men.
+
+Here is the sick part. When the angels got Lot and were going to bring him out of the city, he talked to his sons-in-law, and they thought it was funny. They mocked him. He had two sons-in-law, as the King James says, who were married to his two daughters. But those two daughters were virgins. He offered up his virgin daughters, and they did not want them. They wanted the men.
+
+That is pretty sick.
+
+If you think Lot's wife was destroyed because she wanted a glimpse of the fireworks, she looked back longingly on a lifestyle she had undoubtedly left behind.
+
+Yet if the miracles done in Capernaum had been done in their presence, Jesus said Sodom would have repented in sackcloth and ashes. That means they would have stayed there in sackcloth and thrown ashes on their heads. In the Old Testament, they would stay there until God answered. He was saying they would have stayed before God and repented until they had an answer.
+
+Yet Capernaum would not repent. The difference between Capernaum and Sodom is this: Sodom was perversion, but Capernaum was the spirit of religion.
+
+We are talking about something real powerful.
+
+In my closet, I do not try to see things when I am praying. But I know God wants to say some things at times. Sometimes He does not have a voice. He wants to judge things at times, and He does not have a voice.
+
+This is the scenario that ran through my spirit.
+
+What if I were sitting in a service, and the preacher was charismatic and had the Holy Ghost, and he was preaching a message on the grace of God? In that message he preached that a person can get saved, be saved for six months, be filled with the Holy Ghost, then backslide after six months, go into the gay culture, never go to church again, live sixty more years, die, and go to heaven.
+
+I forgot I was standing behind the pulpit preaching that scenario, and the apostle Paul was sitting in the crowd.
+
+Blasphemy is when you destroy a foundational truth. Evil-speaking blasphemy is when a person destroys any part of the foundation of the Church. That is why Paul turned Hymenaeus and Alexander over to the devil, that they may learn not to blaspheme.
+
+I know lots of charismatic men who teach a gospel like that. When I saw this scenario go off inside me, I said, "God, what would Paul have done?"
+
+He would have turned that man over to the devil so he would learn not to destroy that part of the foundation of the Church.
+
+Would he?
+
+The spirit of religion is very, very powerful. Obviously it is more powerful than perversion. It is the spirit under which men will fast forty days, and thirty days a year, and "holy men" will fast and fast and fast and become champions in leading their whole nation to hell.
+
+We had two hundred thousand Hindus saved one night, because when people started screaming as their teeth were being filled, the Hindus could see what was taking place. Later I found out it was the single largest harvest of souls in one night in a single meeting in the history of India.
+
+Yet there were a whole lot who did not get saved as they watched blind and maimed people testify, "I was blind. Now I can see." Five thousand people's teeth had been filled with silver and gold. Yes, two hundred thousand Hindus were born again. Yet I venture to say there were another hundred and fifty thousand there who were not. They were going to follow whatever god they followed in Hinduism.
+
+Men can sit through services like Benny Hinn's and walk out while he is dragging them by the coattail, and they are holding a Quran up to him, saying, "Here is the truth."
+
+Spirit of religion.
+
+But it is not only in the lost world. If you tore out of your Bible everything some of these religions do not believe, you would only have a couple of pages left. Why do they even carry it?
+
+How does a man sell out? People do it according to their religion. If you are a Christian, you can beat the air. You can become a monk, isolate yourself, and stay out of a window. You can become a nun like the one who believed that the more sacrifice she gave of her life and service, the more holy she became. When she washed lepers down, she would take the dead skin she scrubbed off them, put it in a communion cup, and drink it.
+
+That was a form of penance. She died of horrible, agonizing pains on the inside. That was God's glory?
+
+How do they sell out? She sold out. She sold out to the nth degree.
+
+I said, "God, why could You not step in? She had a sincere heart."
+
+This is what He was trying to get over to me. She had a sincere heart, but still, when presented with truth, that spirit of religion will take a person's life and will and hold God on the outside.
+
+This is why praying in tongues, the revelation gift, has been so fought by the devil. Eventually you are giving God permission to break down every stupid thing you believe.
+
+"Let Me on the inside, for God's sake."
+

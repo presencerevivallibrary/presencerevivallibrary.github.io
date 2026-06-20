@@ -1,0 +1,157 @@
+# Drink From the Well of Worship
+
+When I first went to Immokalee, Florida, I learned the pastor's nickname was Bronk and promptly forgot his real name. Bronk, come up here for a moment.
+
+The Lord has given me special instructions to spend time on worship this morning. Before the March conference, He began introducing me to worship by telling me I knew very little about it. That is one way to get a prideful preacher interested! Pride is safe only when it remains before God, because He can kill it.
+
+When I began carrying this revelation to others, Bronk received it. He could tell you about the fight he had with his flesh while breaking into worship. I want him to testify because several notable miracles have recently occurred in his ministry, not merely in meetings charged with power, but as he sought out unbelievers and ministered to them.
+
+I asked him whether the anointing had increased and what he attributed it to. I knew his answer. I want so badly to put enough into you that you enter private worship, because if you leave without breaking through, you will miss another major key to the walk of power.
+
+Bronk testified:
+
+"During the week Pastor was with us, I kept interrupting him to say, 'Another notable miracle has taken place.' Those miracles have not stopped, and the people healed then are still healed.
+
+"About six weeks ago, we were called to a neighboring city to minister to a twenty-nine-year-old woman in the final stages of lupus. Doctors said she was too far gone even to treat. Her family had gathered, children ran through the house, and she sat crying on the couch.
+
+"As I explained that Satan, not God, was doing this, the anointing came. Once she received that revelation, the Holy Spirit fell and a holy hush settled over the chaotic house. Everyone asked to pray with us. I led them in a sinner's prayer, then prayed for her healing.
+
+"The Holy Spirit said, 'I am healing her now.' I thought, 'God, I know she is healed by faith, but are You telling me that?' He answered, 'You do not think I sent you all this way not to heal her, do you?'
+
+"Three days later, we heard that the doctors said their first report must have been wrong. Instead of final-stage lupus, they could detect only its earliest stage. What a reversal.
+
+"Another woman from our church spent two days under hospital observation in excruciating pain. A surgeon was coming to arrange exploratory surgery. We began with worship, laid hands on her, and God's power filled the room. I told her, 'When the surgeon comes, he will find nothing and release you without surgery.' The next evening she was in church, worshiping without pain.
+
+"A woman interrupted a service to report that someone we had prayed for with terminal cancer now showed no sign of cancer. Another woman had endured a painful hernia for years and planned to enter the hospital. We prayed for her on the spot. Weeks later, she testified that she had been completely free of pain from that moment.
+
+"The testimonies have become so numerous that one woman now records them for us. I praise God for this limb of worship."
+
+I understand the increase in anointing. Praying in tongues, speaking and meditating the Word, fasting, and worship all contribute. Worship especially affects the tangible presence surrounding you, the presence your senses can feel.
+
+God tried to lead me into this worship years earlier, but I passed it by. After I finally entered for several weeks, Tim gave me Rick Joyner's book on how God receives worship. I lay on the floor and wept, thanking God that I received the book after breaking through because otherwise I might have despised it.
+
+For months I said that until God stopped me in Washington: "No, you would not have despised it. You would simply have read it and continued as before."
+
+That hurt. I had required a visitation to understand that I could not go further in God's plan without worship. On the ninth day of a fast, after prayer had prepared me, He knocked me to the floor and spoke to me. Since March, I have not been the same.
+
+Corporate worship is valuable, but it is not enough by itself to produce this change. We must enter private worship.
+
+John 16 says:
+
+> I have yet many things to say unto you, but ye cannot bear them now.
+>
+> Howbeit when he, the Spirit of truth, is come, he will guide you into all truth...
+>
+> He shall glorify me: for he shall receive of mine, and shall shew it unto you.
+
+Before the disciples were regenerated, they could understand only so much. The Holy Spirit's ministry is to reveal and glorify Jesus within us.
+
+When presenting a petition, each Person of the Godhead has a role. The Holy Spirit turns me over to Jesus. I worship Jesus under the Spirit's anointing until His presence comes. Jesus then brings me into the Father's presence.
+
+I do not rush a petition because the Father's answer is final to me. Once I present it, I never take it back unless He shows me something that must be corrected. One missing link in faith is our inability to turn a matter over to God, walk away, and leave it there permanently.
+
+The Holy Spirit teaches us to glorify Jesus. He magnifies Christ until worship rises from within us.
+
+Praying in tongues is a revelation gift. The Spirit speaks what He hears and glorifies Jesus; tongues deliberately activates the Teacher within as often and as long as we choose.
+
+When prayer brought me to the season of worship, the same Teacher took charge. Within three days of private worship, I heard myself praying in English by inspiration:
+
+"Holy Spirit, is it not Your ministry to turn me over to Jesus and glorify Him? Then You must help me die so that He may be exalted. I charge You to help me."
+
+Anyone who has fought the flesh through worship knows this is not easy. Imaginations multiply, and disliked parts of yourself become magnified. Sometimes I emerged from six hours of worship feeling like a heathen and wanting to die.
+
+After two weeks came the first notable baptism of God's presence upon my senses. It occurred on the very line where the world fights to control what I see, hear, and feel while my new nature insists that circumstances do not have the final word. That baptism became a winning edge in anointing.
+
+I stayed before God until I captured it because too many ministers were waiting for this truth. No schedule is so busy that one cannot begin. Nobody ever produced revival while living in excuses.
+
+Recent meetings in Phoenix included deaf ears opening, a blind eye seeing, a stiff elbow bending, and healing from chemical burns. Worship has much to do with the tangible presence filling a meeting. As worship joins the other spiritual disciplines, God's power increasingly permeates our surroundings.
+
+I keep letters before me so I do not become unbalanced. In one letter I described a prayer line in which the Spirit told me to receive strength for change. A gentle breeze passed my ears, my spirit seemed lighter, and I found myself on the floor hearing Him say, "You do not know much about worship."
+
+He instructed me to worship for a set period each day, not because worship is merely an appointment, but so I could break through and understand His lesson. Since I was fasting, I asked whether I should continue.
+
+He answered, "I did not tell you not to fast. Fasting cannot give you what worship gives, and worship cannot give you what fasting gives."
+
+The Samaritan woman's encounter with Jesus at Jacob's well changed my understanding forever. There I saw what the Father wanted: the closeness possible only within family.
+
+God is first my Father and then my God. As God, He gives everlasting life and secures our future through inexhaustible power. As Father, He desires the fellowship of children who possess His nature and climb into His arms with adoration, believing there is none like Him.
+
+Jesus said:
+
+> But the hour cometh, and now is, when the true worshippers shall worship the Father in spirit and in truth: for the Father seeketh such to worship him.
+
+"The hour cometh, and now is" means no previous hour in fallen human history offered this worship. Since Adam's fall, no one could give God worship flowing from a regenerated spirit. Born-again believers can.
+
+The Father was not searching church services for a talented worship team. He waited through generations and worked redemption's plan, longing to restore His nature to humanity and receive the fellowship available only through the new birth.
+
+God had relationships with Old Testament saints, who worshiped with mind and soul and gave all they could. Yet sin limited their closeness, and even that relationship required animal sacrifice. They worshiped through a veil of blood.
+
+> For it is not possible that the blood of bulls and of goats should take away sins.
+
+Jesus said no man born of woman was greater than John the Baptist, yet the least in the kingdom was greater than he. Before Christ's resurrection, the new nature was unavailable. John, Moses, David, and Solomon could not give the Father fellowship arising from a born-again spirit. We can.
+
+Old Covenant institutions were shadows of what Christ would bring. Paul says in Colossians 2:
+
+> Let no man therefore judge you in meat, or in drink, or in respect of an holyday...or of the sabbath days:
+>
+> Which are a shadow of things to come; but the body is of Christ.
+
+One cannot live simultaneously in a shadow and in the substance casting it.
+
+Numbers 15 records a man put to death for gathering sticks on the Sabbath. The severity portrayed the impossibility of earning salvation. The Sabbath foreshadowed the rest entered through the new birth, where we cease from our own works as God ceased from His.
+
+> For by grace are ye saved through faith...not of works, lest any man should boast.
+
+Old Testament saints waited in Abraham's bosom, a comfortable shadow of heaven, until Jesus could give them the new nature and lead them into God's presence. Christ is the firstborn from the dead, not merely the first naturally resurrected, since natural resurrections occurred before Him. He was first to emerge from spiritual death so others could follow.
+
+God wanted me to understand the difference between Old and New Covenant worship. From our new nature flows sin-free communion from human spirit to God's Spirit.
+
+In heaven, worship will be spontaneous beneath overwhelming glory. When the Father smiles, pleasing Him will feel like the greatest achievement possible. Waves of joy will erupt continually into worship, with eternity ahead and no ending.
+
+But we need not wait for heaven. The Father eagerly expects our fellowship now. The separation between us was not geographical distance but spiritual depth. Through the new nature, we have been restored to His presence and can worship as though already in heaven.
+
+God tried to lead me into extended worship a year and a half before I obeyed. Had I understood its effect on faith and receiving, I would have yielded to the smallest prompting.
+
+Driving home from a passion play, I wondered why perfect costumes, acting, music, and staging had carried no anointing. Hell was hot and angels flew, but God's presence was absent.
+
+God showed me a stone landing in a pond, with ripples filling the water. He said:
+
+"The more you worship, the more the Holy Spirit permeates your spirit with presence. Ripples from your spirit permeate your soul, from your soul permeate your senses, and finally surround your whole being and atmosphere until others become aware of His presence."
+
+Imagine what that could do for a worship leader, preacher, household, or believer fighting unbelief. Emotions charged with torment and fear can instead be charged with His presence.
+
+I locked myself in my sound room with no motive except to worship. At first it was easy. Then the committed time stretched until minutes moved painfully slowly. I felt as dry as cracker juice and as cold as meat in a freezer, but I continued.
+
+Never believe that because you do not feel God, He is absent, rejects the worship, or that you have failed. Dryness can be the very process of change. Sometimes you feel Him least when breaking through most because you are confronting what previously kept you out.
+
+Then a baptism of my senses began. His presence remained as I moved through the day, fellowshipping with decisions and arriving before me when I prayed for others. Long-standing answers began to come. His presence supplied substance to what faith hoped for.
+
+Even thirty minutes or an hour each day can begin this process. Offer your whole self through simple adoration:
+
+"I love You, Father. I adore You. I want You more than life."
+
+It is not theological eloquence that matters, but the heart and soul poured into each statement.
+
+Ephesians 5 says:
+
+> Be not drunk with wine, wherein is excess; but be filled with the Spirit;
+>
+> Speaking to yourselves in psalms and hymns and spiritual songs, singing and making melody in your heart to the Lord;
+>
+> Giving thanks always for all things unto God and the Father in the name of our Lord Jesus Christ.
+
+"Speaking to yourselves" includes private worship. Too much alcohol affects the senses. Some drink continually to numb themselves against life and responsibility. We remain in physical bodies whose senses contact a negative world every day, but worship fills those senses with the Spirit.
+
+Alcohol moves a person away from responsibility. God's presence moves us toward responsibility by subduing the world's negative input. His kingdom becomes more real to us than this world's operation.
+
+In private worship, I love the Father without asking for anything, and I thank Him for everything He has provided. Jesus becomes to you what you continually call Him. Worship Him as Healer, Provider, Peace, and Wisdom, and those realities grow within you.
+
+I thank God for our staff because they make room for every spiritual direction. It was not always so. I once worked ten or twelve hours, drove hours to meetings, fellowshipped with preachers until two in the morning, then repeated it throughout a revival.
+
+When all my time finally became available for ministry, I felt I had reached heaven. During my first three months, I prayed in tongues daily while bills accumulated. Then a man handed me enough to pay everything, give one hundred dollars away, and retain one hundred.
+
+After paying the accounts, I returned to the closet and worshiped: "Do I truly get to spend all day doing what I would have given anything to do, then tell people what You taught me, and You will support me?"
+
+Preachers sometimes surrender too easily. God will not give you unrestricted time when you waste the time presently available. Serve fully while employed. I built furniture for Sunday school, taught classes, drove thirty miles to collect children, cleaned, painted, and stayed until the work was done. Then God gave me all the ministry time I desired.
+
+You do not need twenty-six years to do what I did. Let the sower overtake the harvester. Make dust. Let us stand and worship God.
