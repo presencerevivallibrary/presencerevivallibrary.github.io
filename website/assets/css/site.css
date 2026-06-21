@@ -1,0 +1,512 @@
+
+:root {
+  --bg: #f5efe3;
+  --bg-accent: #efe3c9;
+  --surface: rgba(255, 252, 245, 0.92);
+  --surface-strong: #fffaf0;
+  --line: rgba(96, 68, 31, 0.18);
+  --text: #2e241a;
+  --muted: #6e5c4a;
+  --accent: #8a4b20;
+  --accent-deep: #5e2c11;
+  --accent-soft: #d7b88a;
+  --shadow: 0 18px 50px rgba(82, 50, 20, 0.12);
+  --radius: 22px;
+  --radius-sm: 14px;
+}
+
+* {
+  box-sizing: border-box;
+}
+
+html {
+  scroll-behavior: smooth;
+}
+
+body {
+  margin: 0;
+  color: var(--text);
+  background:
+    radial-gradient(circle at top left, rgba(215, 184, 138, 0.35), transparent 28rem),
+    linear-gradient(180deg, #f9f4ea 0%, var(--bg) 58%, #efe7d6 100%);
+  font-family: "Aptos", "Segoe UI", system-ui, sans-serif;
+  line-height: 1.65;
+}
+
+a {
+  color: inherit;
+}
+
+.page-shell {
+  width: min(1180px, calc(100% - 2rem));
+  margin: 0 auto;
+  padding: 0.6rem 0 2rem;
+}
+
+.site-header,
+.site-footer {
+  display: flex;
+  gap: 1rem;
+  justify-content: space-between;
+  align-items: flex-start;
+  padding: 0.85rem 0;
+}
+
+.site-header {
+  border-bottom: 1px solid var(--line);
+  margin-bottom: 1.5rem;
+}
+
+.site-footer {
+  border-top: 1px solid var(--line);
+  margin-top: 2.5rem;
+  color: var(--muted);
+  font-size: 0.95rem;
+}
+
+.site-brand {
+  font-family: "Palatino Linotype", "Book Antiqua", Georgia, serif;
+  font-size: clamp(1.2rem, 2vw, 1.55rem);
+  font-weight: 700;
+  text-decoration: none;
+  letter-spacing: 0.02em;
+}
+
+.site-branding {
+  display: grid;
+  gap: 0.45rem;
+  max-width: 52rem;
+}
+
+.site-subtitle {
+  margin: 0;
+  color: var(--muted);
+  font-size: 0.95rem;
+}
+
+.site-nav {
+  display: flex;
+  flex-wrap: wrap;
+  gap: 1.25rem;
+  align-items: center;
+  justify-content: flex-start;
+}
+
+.site-controls {
+  display: flex;
+  flex-wrap: wrap;
+  gap: 0.75rem;
+  align-items: flex-start;
+  justify-content: flex-end;
+}
+
+.site-nav a,
+.site-nav-link {
+  text-decoration: none;
+  color: var(--accent-deep);
+  font-size: 0.95rem;
+  padding: 0;
+}
+
+.site-nav a:hover,
+.site-nav a:focus-visible,
+.text-link:hover,
+.text-link:focus-visible {
+  color: var(--accent-deep);
+}
+
+.search-panel,
+.page-section,
+.transcript-intro {
+  background: var(--surface);
+  border: 1px solid var(--line);
+  border-radius: var(--radius);
+  box-shadow: var(--shadow);
+}
+
+.page-section h1,
+.transcript-intro h1 {
+  font-family: "Palatino Linotype", "Book Antiqua", Georgia, serif;
+  font-size: clamp(1.5rem, 3vw, 2.25rem);
+  line-height: 1.05;
+  margin: 0 0 0.6rem;
+}
+
+.transcript-meta,
+.results-summary,
+.section-heading p {
+  color: var(--muted);
+}
+
+.button,
+.style-option {
+  appearance: none;
+  border: 1px solid transparent;
+  border-radius: 999px;
+  padding: 0.8rem 1.2rem;
+  font: inherit;
+  text-decoration: none;
+  cursor: pointer;
+  transition: transform 160ms ease, background-color 160ms ease, border-color 160ms ease;
+}
+
+.button {
+  background: var(--accent-deep);
+  color: #fff9f1;
+}
+
+.button.secondary {
+  background: transparent;
+  color: var(--accent-deep);
+  border-color: var(--accent-soft);
+}
+
+.button:hover,
+.button:focus-visible,
+.style-option:hover,
+.style-option:focus-visible {
+  transform: translateY(-1px);
+}
+
+.style-panel {
+  background: transparent;
+  border: 0;
+  border-radius: 0;
+  padding: 0;
+}
+
+.style-panel-label {
+  margin: 0;
+  font-weight: 600;
+  font-size: 0.92rem;
+}
+
+.style-panel-compact {
+  display: inline-flex;
+  flex-wrap: wrap;
+  align-items: center;
+  gap: 0.35rem;
+}
+
+.style-toggle {
+  display: grid;
+  gap: 0.75rem;
+}
+
+.style-toggle-inline {
+  display: flex;
+  flex-wrap: nowrap;
+  align-items: center;
+  gap: 0.2rem;
+}
+
+.style-toggle-inline .style-option + .style-option::before {
+  content: "|";
+  color: var(--muted);
+  margin-right: 0.45rem;
+}
+
+.style-option {
+  border-color: transparent;
+  background: transparent;
+  color: var(--muted);
+  text-align: left;
+  padding: 0;
+  font-size: 0.92rem;
+}
+
+.style-option.is-active {
+  background: transparent;
+  color: var(--accent-deep);
+}
+
+.search-panel,
+.page-section,
+.transcript-intro {
+  margin-top: 1rem;
+  padding: 1rem 1.1rem;
+}
+
+.search-input {
+  width: 100%;
+  margin-top: 0.65rem;
+  padding: 0.95rem 1rem;
+  border-radius: var(--radius-sm);
+  border: 1px solid var(--line);
+  font: inherit;
+  background: var(--surface-strong);
+}
+
+.section-heading {
+  margin-bottom: 0.85rem;
+}
+
+.section-heading-tools,
+.section-tools {
+  display: flex;
+  flex-wrap: wrap;
+  gap: 0.9rem 1.25rem;
+  align-items: center;
+}
+
+.section-heading-tools {
+  justify-content: space-between;
+  border-bottom: 1px solid var(--line);
+  padding-bottom: 0.9rem;
+}
+
+.section-tools {
+  flex: 1 1 100%;
+  width: 100%;
+  margin-left: 0;
+  justify-content: space-between;
+}
+
+.section-tool-link {
+  color: var(--accent-deep);
+  text-decoration: none;
+  white-space: nowrap;
+  font-size: 0.92rem;
+}
+
+.section-tool-link-right {
+  margin-left: auto;
+  text-align: right;
+}
+
+.transcript-tools {
+  margin-top: 0.4rem;
+}
+
+.section-heading h2,
+.prose h1,
+.prose h2,
+.prose h3,
+.prose h4 {
+  font-family: "Palatino Linotype", "Book Antiqua", Georgia, serif;
+}
+
+.section-heading h2 {
+  margin: 0;
+  font-size: clamp(1.5rem, 3vw, 2rem);
+}
+
+.card,
+.teaching-series {
+  border: 1px solid var(--line);
+  border-radius: var(--radius-sm);
+  background: rgba(255, 250, 240, 0.72);
+}
+
+.teaching-index {
+  display: grid;
+  grid-template-columns: repeat(2, minmax(0, 1fr));
+  gap: 0.85rem;
+}
+
+.teaching-series {
+  padding: 0.9rem 1rem;
+}
+
+.teaching-series-summary {
+  display: flex;
+  justify-content: space-between;
+  gap: 1rem;
+  align-items: baseline;
+  cursor: pointer;
+  list-style: none;
+  font-weight: 700;
+}
+
+.teaching-series-summary::-webkit-details-marker {
+  display: none;
+}
+
+.teaching-series-title {
+  font-size: 1rem;
+}
+
+.teaching-series-count {
+  color: var(--muted);
+  font-size: 0.92rem;
+  font-weight: 600;
+  white-space: nowrap;
+}
+
+.teaching-list {
+  display: grid;
+  gap: 0.8rem;
+  margin-top: 0.8rem;
+}
+
+.teaching-item {
+  display: grid;
+  gap: 0.75rem;
+  align-items: start;
+  grid-template-columns: minmax(0, 1fr) auto;
+  padding: 0.65rem 0;
+  border-top: 1px solid rgba(96, 68, 31, 0.12);
+}
+
+.teaching-item:first-child {
+  border-top: 0;
+  padding-top: 0.2rem;
+}
+
+.teaching-title {
+  font-weight: 400;
+}
+
+.teaching-links {
+  display: flex;
+  flex-wrap: wrap;
+  gap: 0.6rem;
+}
+
+.text-link {
+  text-decoration: underline;
+  text-underline-offset: 0.15em;
+}
+
+.transcript-pagination {
+  display: flex;
+  flex-wrap: wrap;
+  gap: 0.85rem 1rem;
+  margin-top: 0.9rem;
+}
+
+.transcript-pagination > :last-child {
+  margin-left: auto;
+  text-align: right;
+}
+
+.transcript-nav-link {
+  color: var(--accent-deep);
+  text-decoration: none;
+  background: rgba(255, 250, 240, 0.8);
+  border: 1px solid rgba(96, 68, 31, 0.16);
+  border-radius: 999px;
+  padding: 0.45rem 0.8rem;
+  font-size: 0.92rem;
+}
+
+.transcript-nav-link.is-disabled {
+  color: #8f8677;
+  background: rgba(214, 208, 198, 0.6);
+  border-color: rgba(143, 134, 119, 0.35);
+}
+
+.prose {
+  font-family: "Iowan Old Style", "Palatino Linotype", "Book Antiqua", Georgia, serif;
+  font-size: 1.06rem;
+}
+
+.transcript-title {
+  margin-bottom: 1.1rem;
+}
+
+.transcript-content h2:not(.transcript-title) {
+  font-size: 1.2rem;
+  margin-top: 1.5rem;
+  margin-bottom: 0.6rem;
+}
+
+.transcript-content h3 {
+  font-size: 1.05rem;
+  margin-top: 1.3rem;
+  margin-bottom: 0.5rem;
+}
+
+.transcript-content h4 {
+  font-size: 0.98rem;
+  margin-top: 1.1rem;
+  margin-bottom: 0.45rem;
+}
+
+.about-page main {
+  display: grid;
+  gap: 1rem;
+}
+
+.about-panel {
+  max-width: 76rem;
+  width: 100%;
+  margin: 0 auto;
+}
+
+.prose > :first-child {
+  margin-top: 0;
+}
+
+.prose p,
+.prose ul,
+.prose ol,
+.prose blockquote {
+  margin: 1rem 0;
+}
+
+.prose blockquote {
+  margin-left: 0;
+  padding-left: 1rem;
+  border-left: 3px solid var(--accent-soft);
+  color: var(--muted);
+}
+
+.prose code {
+  font-family: "Cascadia Code", Consolas, monospace;
+  font-size: 0.95em;
+}
+
+.is-hidden {
+  display: none !important;
+}
+
+@media (max-width: 860px) {
+  .site-header,
+  .site-footer,
+  .teaching-item {
+    grid-template-columns: 1fr;
+    display: grid;
+  }
+
+  .teaching-index {
+    grid-template-columns: 1fr;
+  }
+
+  .site-nav {
+    gap: 0.85rem 1rem;
+    justify-content: flex-start;
+  }
+
+  .site-controls {
+    justify-content: flex-start;
+  }
+
+  .section-heading-tools,
+  .section-tools,
+  .transcript-pagination {
+    justify-content: flex-start;
+  }
+
+  .section-tools {
+    width: 100%;
+    margin-left: 0;
+  }
+
+  .section-tool-link-right,
+  .transcript-pagination > :last-child {
+    margin-left: auto;
+    text-align: right;
+  }
+}
+
+@media (prefers-reduced-motion: reduce) {
+  html {
+    scroll-behavior: auto;
+  }
+
+  .button,
+  .style-option {
+    transition: none;
+  }
+}
