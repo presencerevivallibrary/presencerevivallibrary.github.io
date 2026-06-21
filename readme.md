@@ -34,11 +34,19 @@ Folder meanings:
 
 ## Local Python
 
-If `python` is not available on your PATH, this machine's local Anaconda Python also works:
+If `python` is not available on your PATH, try one of these:
+
+- `py scripts/build_site.py`
+- `where.exe python`
+- `where.exe conda`
+
+If you find a Conda installation, you can run the build with:
 
 ```powershell
 <PATH-TO-CONDA-EXE> run -p <PATH-TO-CONDA-ENV> python scripts/build_site.py
 ```
+
+For example, if `where.exe conda` shows your Conda executable location, use that path in place of `<PATH-TO-CONDA-EXE>`, and use the environment or install root in place of `<PATH-TO-CONDA-ENV>`.
 
 To verify that interpreter:
 
