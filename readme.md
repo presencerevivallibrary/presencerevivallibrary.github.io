@@ -30,7 +30,20 @@ Folder meanings:
 1. Add or update files in the `source/` folders.
 2. Run `python scripts/build_site.py`.
 3. Review the generated `website/` output.
-4. Deploy `website/` to GitHub Pages.
+4. Commit and push the updated files to `master`.
+
+## GitHub Pages
+
+This repository includes a GitHub Actions workflow that deploys the contents of `website/` to GitHub Pages whenever you push to `master`.
+
+After the initial one-time setup in GitHub, future updates are:
+
+1. Update files in `source/`.
+2. Run `python scripts/build_site.py`.
+3. Check the generated `website/`.
+4. Commit and push to `master`.
+
+GitHub will then publish the site automatically.
 
 ## Local Python
 
