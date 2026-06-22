@@ -14,6 +14,7 @@ from urllib.parse import quote
 SITE_TITLE = "Presence Revival Library"
 SITE_SUBTITLE = "A transcript library of teaching series from Dave Roberson Ministries."
 SITE_ORIGIN = "https://presencerevivallibrary.github.io"
+GOOGLE_SITE_VERIFICATION = "FDOeGfz85FjGx8LN5331PPQDQ7skHXJPFLHPnRgZWDQ"
 DEFAULT_LANG = "en"
 STYLE_PLAIN = "plain"
 STYLE_SECTION = "section"
@@ -207,6 +208,7 @@ def redirect_document(destination: str) -> str:
   <meta charset="utf-8">
   <meta http-equiv="refresh" content="0; url={safe_destination}">
   <meta name="viewport" content="width=device-width, initial-scale=1">
+  <meta name="google-site-verification" content="{GOOGLE_SITE_VERIFICATION}">
   <title>{SITE_TITLE}</title>
   <link rel="canonical" href="{safe_destination}">
 </head>
@@ -492,6 +494,7 @@ def page_shell(
   <meta charset="utf-8">
   <meta name="viewport" content="width=device-width, initial-scale=1">
   <meta name="description" content="{description_html}">
+  <meta name="google-site-verification" content="{GOOGLE_SITE_VERIFICATION}">
   <title>{title_html}</title>
   <link rel="stylesheet" href="{asset_prefix}/css/site.css">
 </head>
