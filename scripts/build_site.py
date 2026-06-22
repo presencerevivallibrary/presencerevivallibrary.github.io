@@ -13,6 +13,7 @@ from urllib.parse import quote
 
 SITE_TITLE = "Presence Revival Library"
 SITE_SUBTITLE = "A transcript library of teaching series from Dave Roberson Ministries."
+SITE_ORIGIN = "https://presencerevivallibrary.github.io"
 DEFAULT_LANG = "en"
 STYLE_PLAIN = "plain"
 STYLE_SECTION = "section"
@@ -57,6 +58,7 @@ def main() -> int:
     write_root_redirects(output_root, args.lang)
     write_assets(output_root / "assets")
     write_language_site(source_root, lang_root, args.lang, series_map, teachings)
+    write_sitemap(output_root, args.lang, teachings)
 
     for warning in warnings:
         print(f"Warning: {warning}", file=sys.stderr)
@@ -436,6 +438,32 @@ def write_complete_archive(source_root: Path, lang_root: Path) -> None:
             for path in sorted(folder.rglob("*")):
                 if path.is_file():
                     archive.write(path, arcname=str(path.relative_to(source_root)).replace("\\", "/"))
+
+
+def write_sitemap(output_root: Path, lang: str, teachings: list[Teaching]) -> None:
+    urls = [
+        f"{SITE_ORIGIN}/",
+        f"{SITE_ORIGIN}/about.html",
+        f"{SITE_ORIGIN}/{lang}/index.html",
+        f"{SITE_ORIGIN}/{lang}/about.html",
+    ]
+    urls.extend(
+        f"{SITE_ORIGIN}/{lang}/{teaching.urls['html']}"
+        for teaching in sorted(teachings, key=lambda item: item.sort_key)
+        if teaching.paths["md"] is not None
+    )
+
+    url_nodes = "\n".join(
+        f"  <url><loc>{html.escape(url, quote=False)}</loc></url>"
+        for url in urls
+    )
+    sitemap = (
+        '<?xml version="1.0" encoding="UTF-8"?>\n'
+        '<urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9">\n'
+        f"{url_nodes}\n"
+        "</urlset>\n"
+    )
+    (output_root / "sitemap.xml").write_text(sitemap, encoding="utf-8")
 
 
 def page_shell(
