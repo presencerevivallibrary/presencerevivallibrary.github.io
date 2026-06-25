@@ -60,6 +60,7 @@ def main() -> int:
     write_assets(output_root / "assets")
     write_language_site(source_root, lang_root, args.lang, series_map, teachings)
     write_sitemap(output_root, args.lang, teachings)
+    write_robots(output_root)
 
     for warning in warnings:
         print(f"Warning: {warning}", file=sys.stderr)
@@ -466,6 +467,15 @@ def write_sitemap(output_root: Path, lang: str, teachings: list[Teaching]) -> No
         "</urlset>\n"
     )
     (output_root / "sitemap.xml").write_text(sitemap, encoding="utf-8")
+
+
+def write_robots(output_root: Path) -> None:
+    robots = (
+        "User-agent: *\n"
+        "Allow: /\n"
+        f"Sitemap: {SITE_ORIGIN}/sitemap.xml\n"
+    )
+    (output_root / "robots.txt").write_text(robots, encoding="utf-8")
 
 
 def page_shell(
