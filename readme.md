@@ -78,7 +78,7 @@ To verify that interpreter:
 
 The build script can generate IndexNow files for faster discovery on Bing and other participating search engines.
 
-By default the build uses the stable key `presence-revival-library-indexnow`.
+By default the build uses the stable key `50283fcd-8c76-4cfd-9bd7-9a8b4002f647`.
 
 If you want to override that key, set `INDEXNOW_KEY` before running the build:
 
