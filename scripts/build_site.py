@@ -1,6 +1,7 @@
 ﻿from __future__ import annotations
 
 import argparse
+import hashlib
 import html
 import json
 import os
@@ -542,6 +543,7 @@ def page_shell(
 ) -> str:
     title_html = html.escape(title)
     description_html = html.escape(description, quote=True)
+    asset_version = asset_version_token()
     footer_link = f"{nav_prefix}teachings/html/1071-02-worship-in-spirit-and-in-truth.html"
     footer_html = f"""
     <footer class="site-footer">
@@ -558,7 +560,7 @@ def page_shell(
   <meta name="description" content="{description_html}">
   <meta name="google-site-verification" content="{GOOGLE_SITE_VERIFICATION}">
   <title>{title_html}</title>
-  <link rel="stylesheet" href="{asset_prefix}/css/site.css">
+  <link rel="stylesheet" href="{asset_prefix}/css/site.css?v={asset_version}">
 </head>
 <body class="{body_class}">
   <div class="page-shell">
@@ -576,10 +578,15 @@ def page_shell(
     {footer_html}
   </div>
   {extra_markup}
-  <script src="{asset_prefix}/js/site.js" defer></script>
+  <script src="{asset_prefix}/js/site.js?v={asset_version}" defer></script>
 </body>
 </html>
 """
+
+
+def asset_version_token() -> str:
+    payload = f"{SITE_CSS}\n{SITE_JS}".encode("utf-8")
+    return hashlib.sha256(payload).hexdigest()[:12]
 
 
 def index_content() -> str:
