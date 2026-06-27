@@ -65,6 +65,16 @@ function renderTeachingIndex(seriesList, style) {
     return;
   }
 
+  if (!seriesList.length) {
+    container.innerHTML = `
+      <article class="card">
+        <h3>No matching teachings found</h3>
+        <p>Try a different word from the series title, teaching title, or teaching number.</p>
+      </article>
+    `;
+    return;
+  }
+
   container.innerHTML = seriesList.map((series) => `
     <details class="teaching-series" id="series-${series.seriesId}">
       <summary class="teaching-series-summary">
@@ -130,6 +140,7 @@ function filterSeries(payload, query) {
 
 async function initLibraryPage() {
   const container = document.getElementById("teaching-index");
+  const searchInput = document.getElementById("teaching-search");
   if (!container) {
     return;
   }
@@ -144,10 +155,15 @@ async function initLibraryPage() {
   }
   const render = () => {
     const style = getSavedStyle();
-    renderTeachingIndex(payload.series, style);
+    const query = searchInput ? searchInput.value : "";
+    const filteredSeries = filterSeries(payload, query);
+    renderTeachingIndex(filteredSeries, style);
   };
 
   bindStyleToggle(render);
+  if (searchInput) {
+    searchInput.addEventListener("input", render);
+  }
   render();
 }
 

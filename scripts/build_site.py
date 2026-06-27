@@ -586,7 +586,20 @@ def index_content() -> str:
     return f"""
 <section class="page-section">
   <div class="section-heading section-heading-tools">
-    <h2>Teaching Series</h2>
+    <div class="section-heading-primary">
+      <h2>Teaching Series</h2>
+      <label class="library-search" for="teaching-search">
+        <input
+          id="teaching-search"
+          class="search-input library-search-input"
+          type="search"
+          name="q"
+          placeholder="Search series or teachings"
+          autocomplete="off"
+          spellcheck="false"
+        >
+      </label>
+    </div>
     <div class="section-tools">
       {style_toggle_markup(compact=True, label="View:", plain_label="Original", section_label="AI Headings")}
       <a class="section-tool-link section-tool-link-right" href="./files/complete-archive.zip">Download Full Archive</a>
@@ -1077,7 +1090,6 @@ a {
 
 .search-input {
   width: 100%;
-  margin-top: 0.65rem;
   padding: 0.95rem 1rem;
   border-radius: var(--radius-sm);
   border: 1px solid var(--line);
@@ -1085,10 +1097,17 @@ a {
   background: var(--surface-strong);
 }
 
+.search-input:focus {
+  outline: 2px solid color-mix(in srgb, var(--accent-soft) 65%, white);
+  outline-offset: 2px;
+  border-color: color-mix(in srgb, var(--accent) 45%, var(--line));
+}
+
 .section-heading {
   margin-bottom: 0.85rem;
 }
 
+.section-heading-primary,
 .section-heading-tools,
 .section-tools {
   display: flex;
@@ -1098,16 +1117,34 @@ a {
 }
 
 .section-heading-tools {
-  justify-content: space-between;
   border-bottom: 1px solid var(--line);
   padding-bottom: 0.9rem;
+  gap: 0.9rem;
+}
+
+.section-heading-primary {
+  justify-content: space-between;
+  width: 100%;
 }
 
 .section-tools {
-  flex: 1 1 100%;
   width: 100%;
   margin-left: 0;
   justify-content: space-between;
+}
+
+.library-search {
+  display: grid;
+  margin-left: auto;
+  min-width: min(100%, 12rem);
+  flex: 1 1 14rem;
+  max-width: 25rem;
+}
+
+.library-search-input {
+  margin-top: 0;
+  min-width: 0;
+  padding-block: 0.8rem;
 }
 
 .section-tool-link {
@@ -1335,9 +1372,20 @@ a {
     justify-content: flex-start;
   }
 
+  .section-heading-primary {
+    align-items: stretch;
+  }
+
   .section-tools {
     width: 100%;
     margin-left: 0;
+  }
+
+  .library-search {
+    margin-left: 0;
+    min-width: 10rem;
+    flex: 1 1 12rem;
+    max-width: none;
   }
 
   .section-tool-link-right,
@@ -1352,6 +1400,25 @@ a {
 
   .site-footer-quote em {
     line-height: 1.65;
+  }
+}
+
+@media (max-width: 540px) {
+  .section-heading-primary {
+    width: 100%;
+  }
+
+  .library-search {
+    flex-basis: 100%;
+  }
+}
+
+@media (max-width: 440px) {
+  .section-tool-link-right,
+  .transcript-pagination > :last-child {
+    width: 100%;
+    margin-left: 0;
+    text-align: left;
   }
 }
 
@@ -1435,6 +1502,16 @@ function renderTeachingIndex(seriesList, style) {
     return;
   }
 
+  if (!seriesList.length) {
+    container.innerHTML = `
+      <article class="card">
+        <h3>No matching teachings found</h3>
+        <p>Try a different word from the series title, teaching title, or teaching number.</p>
+      </article>
+    `;
+    return;
+  }
+
   container.innerHTML = seriesList.map((series) => `
     <details class="teaching-series" id="series-${series.seriesId}">
       <summary class="teaching-series-summary">
@@ -1500,6 +1577,7 @@ function filterSeries(payload, query) {
 
 async function initLibraryPage() {
   const container = document.getElementById("teaching-index");
+  const searchInput = document.getElementById("teaching-search");
   if (!container) {
     return;
   }
@@ -1514,10 +1592,15 @@ async function initLibraryPage() {
   }
   const render = () => {
     const style = getSavedStyle();
-    renderTeachingIndex(payload.series, style);
+    const query = searchInput ? searchInput.value : "";
+    const filteredSeries = filterSeries(payload, query);
+    renderTeachingIndex(filteredSeries, style);
   };
 
   bindStyleToggle(render);
+  if (searchInput) {
+    searchInput.addEventListener("input", render);
+  }
   render();
 }
 
