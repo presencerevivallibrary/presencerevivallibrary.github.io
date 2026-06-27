@@ -74,6 +74,26 @@ To verify that interpreter:
 - English is implemented now, and the build script is already structured for future `--lang` support.
 - The public site title is `Presence Revival Library`.
 
+## IndexNow
+
+The build script can generate IndexNow files for faster discovery on Bing and other participating search engines.
+
+By default the build uses the stable key `presence-revival-library-indexnow`.
+
+If you want to override that key, set `INDEXNOW_KEY` before running the build:
+
+```powershell
+$env:INDEXNOW_KEY = "your-indexnow-key"
+python scripts/build_site.py
+```
+
+The build will generate:
+
+- `website/<INDEXNOW_KEY>.txt` for IndexNow ownership verification
+- `website/indexnow.json` with the submitted URL list
+
+The GitHub Pages deploy workflow will POST `website/indexnow.json` to Bing after deployment when that file exists.
+
 ## Current Content Notes
 
 - Transcript folders are intentionally not consecutive.

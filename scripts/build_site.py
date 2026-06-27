@@ -3,6 +3,7 @@
 import argparse
 import html
 import json
+import os
 import re
 import shutil
 import sys
@@ -10,11 +11,14 @@ import zipfile
 from dataclasses import dataclass
 from pathlib import Path
 from urllib.parse import quote
+from urllib.parse import urlparse
 
 SITE_TITLE = "Presence Revival Library"
 SITE_SUBTITLE = "A transcript library of teaching series from Dave Roberson Ministries."
 SITE_ORIGIN = "https://presencerevivallibrary.github.io"
 GOOGLE_SITE_VERIFICATION = "FDOeGfz85FjGx8LN5331PPQDQ7skHXJPFLHPnRgZWDQ"
+DEFAULT_INDEXNOW_KEY = "presence-revival-library-indexnow"
+INDEXNOW_KEY = os.environ.get("INDEXNOW_KEY", DEFAULT_INDEXNOW_KEY).strip()
 DEFAULT_LANG = "en"
 STYLE_PLAIN = "plain"
 STYLE_SECTION = "section"
@@ -61,6 +65,7 @@ def main() -> int:
     write_language_site(source_root, lang_root, args.lang, series_map, teachings)
     write_sitemap(output_root, args.lang, teachings)
     write_robots(output_root)
+    write_indexnow_files(output_root, args.lang, teachings)
 
     for warning in warnings:
         print(f"Warning: {warning}", file=sys.stderr)
@@ -444,15 +449,7 @@ def write_complete_archive(source_root: Path, lang_root: Path) -> None:
 
 
 def write_sitemap(output_root: Path, lang: str, teachings: list[Teaching]) -> None:
-    urls = [
-        f"{SITE_ORIGIN}/{lang}/index.html",
-        f"{SITE_ORIGIN}/{lang}/about.html",
-    ]
-    urls.extend(
-        f"{SITE_ORIGIN}/{lang}/{teaching.urls['html']}"
-        for teaching in sorted(teachings, key=lambda item: item.sort_key)
-        if teaching.paths["md"] is not None
-    )
+    urls = build_public_urls(lang, teachings)
 
     url_nodes = "\n".join(
         f"  <url><loc>{html.escape(url, quote=False)}</loc></url>"
@@ -474,6 +471,56 @@ def write_robots(output_root: Path) -> None:
         f"Sitemap: {SITE_ORIGIN}/sitemap.xml\n"
     )
     (output_root / "robots.txt").write_text(robots, encoding="utf-8")
+
+
+def write_indexnow_files(output_root: Path, lang: str, teachings: list[Teaching]) -> None:
+    if not INDEXNOW_KEY:
+        manifest_path = output_root / "indexnow.json"
+        if manifest_path.exists():
+            try:
+                payload = json.loads(manifest_path.read_text(encoding="utf-8"))
+            except json.JSONDecodeError:
+                payload = {}
+            key = str(payload.get("key", "")).strip()
+            if key:
+                key_file_path = output_root / f"{key}.txt"
+                if key_file_path.exists():
+                    key_file_path.unlink()
+            manifest_path.unlink()
+        return
+
+    key_file_name = f"{INDEXNOW_KEY}.txt"
+    key_file_path = output_root / key_file_name
+    key_file_path.write_text(INDEXNOW_KEY, encoding="utf-8")
+
+    payload = {
+        "host": indexnow_host(),
+        "key": INDEXNOW_KEY,
+        "keyLocation": f"{SITE_ORIGIN}/{key_file_name}",
+        "urlList": build_public_urls(lang, teachings),
+    }
+    (output_root / "indexnow.json").write_text(
+        json.dumps(payload, ensure_ascii=False, indent=2) + "\n",
+        encoding="utf-8",
+    )
+
+
+def indexnow_host() -> str:
+    parsed = urlparse(SITE_ORIGIN)
+    return parsed.netloc
+
+
+def build_public_urls(lang: str, teachings: list[Teaching]) -> list[str]:
+    urls = [
+        f"{SITE_ORIGIN}/{lang}/index.html",
+        f"{SITE_ORIGIN}/{lang}/about.html",
+    ]
+    urls.extend(
+        f"{SITE_ORIGIN}/{lang}/{teaching.urls['html']}"
+        for teaching in sorted(teachings, key=lambda item: item.sort_key)
+        if teaching.paths["md"] is not None
+    )
+    return urls
 
 
 def page_shell(

@@ -40,3 +40,11 @@ jobs:
       - name: Deploy to GitHub Pages
         id: deployment
         uses: actions/deploy-pages@v4
+
+      - name: Notify IndexNow
+        if: hashFiles('website/indexnow.json') != ''
+        run: |
+          curl --fail --show-error \
+            -H "Content-Type: application/json; charset=utf-8" \
+            --data-binary @website/indexnow.json \
+            https://www.bing.com/indexnow
