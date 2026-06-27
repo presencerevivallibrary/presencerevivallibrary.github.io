@@ -62,6 +62,42 @@ a {
   margin-top: 2.5rem;
   color: var(--muted);
   font-size: 0.95rem;
+  display: block;
+}
+
+.site-footer-quote {
+  width: min(52rem, 100%);
+  margin: 0 auto;
+}
+
+.site-footer-quote p {
+  margin: 0;
+}
+
+.site-footer-quote em {
+  display: block;
+  font-family: "Palatino Linotype", "Book Antiqua", Georgia, serif;
+  font-size: clamp(1rem, 1.25vw + 0.8rem, 1.18rem);
+  line-height: 1.75;
+  color: var(--ink-soft);
+}
+
+.site-footer-source {
+  margin-top: 0.9rem !important;
+  text-align: right;
+  font-size: 0.88rem;
+  letter-spacing: 0.02em;
+}
+
+.site-footer-source a {
+  color: var(--muted);
+  text-decoration: none;
+}
+
+.site-footer-source a:hover,
+.site-footer-source a:focus-visible {
+  color: var(--accent-deep);
+  text-decoration: underline;
 }
 
 .site-brand {
@@ -82,6 +118,17 @@ a {
   margin: 0;
   color: var(--muted);
   font-size: 0.95rem;
+}
+
+.site-subtitle a {
+  color: inherit;
+  text-decoration-color: color-mix(in srgb, var(--muted) 55%, transparent);
+}
+
+.site-subtitle a:hover,
+.site-subtitle a:focus-visible {
+  color: var(--accent-deep);
+  text-decoration-color: currentColor;
 }
 
 .site-nav {
@@ -463,7 +510,6 @@ a {
 
 @media (max-width: 860px) {
   .site-header,
-  .site-footer,
   .teaching-item {
     grid-template-columns: 1fr;
     display: grid;
@@ -497,6 +543,14 @@ a {
   .transcript-pagination > :last-child {
     margin-left: auto;
     text-align: right;
+  }
+
+  .site-footer-quote {
+    width: 100%;
+  }
+
+  .site-footer-quote em {
+    line-height: 1.65;
   }
 }
 

@@ -14,7 +14,10 @@ from urllib.parse import quote
 from urllib.parse import urlparse
 
 SITE_TITLE = "Presence Revival Library"
-SITE_SUBTITLE = "A transcript library of teaching series from Dave Roberson Ministries."
+SITE_SUBTITLE_HTML = (
+    'A transcript library of teaching series from '
+    '<a href="https://www.daveroberson.org">Dave Roberson Ministries</a>.'
+)
 SITE_ORIGIN = "https://presencerevivallibrary.github.io"
 GOOGLE_SITE_VERIFICATION = "FDOeGfz85FjGx8LN5331PPQDQ7skHXJPFLHPnRgZWDQ"
 DEFAULT_INDEXNOW_KEY = "50283fcd-8c76-4cfd-9bd7-9a8b4002f647"
@@ -539,9 +542,13 @@ def page_shell(
 ) -> str:
     title_html = html.escape(title)
     description_html = html.escape(description, quote=True)
+    footer_link = f"{nav_prefix}teachings/html/1071-02-worship-in-spirit-and-in-truth.html"
     footer_html = f"""
     <footer class="site-footer">
-      <p>{SITE_TITLE} is a static reading library built for simple long-term maintenance.</p>
+      <blockquote class="site-footer-quote">
+        <p><em>&ldquo;When you learn to worship Me, first My presence will permeate your spirit. Then it will permeate your soul and your senses. Then it will permeate your geographical location. Wherever you are, I will come.&rdquo;</em></p>
+        <p class="site-footer-source"><a href="{footer_link}">Excerpt from Worship in Spirit and in Truth</a></p>
+      </blockquote>
     </footer>""" if show_footer else ""
     return f"""<!doctype html>
 <html lang="{html.escape(lang)}">
@@ -558,7 +565,7 @@ def page_shell(
     <header class="site-header">
       <div class="site-branding">
         <a class="site-brand" href="{nav_prefix}index.html">{SITE_TITLE}</a>
-        <p class="site-subtitle">{SITE_SUBTITLE}</p>
+        <p class="site-subtitle">{SITE_SUBTITLE_HTML}</p>
         <nav class="site-nav" aria-label="Primary">{header_links}</nav>
       </div>
       <div class="site-controls">{header_controls}</div>
@@ -716,6 +723,7 @@ def strip_leading_title(rendered_html: str, title: str) -> str:
 
 
 def render_markdown(markdown_text: str) -> str:
+    markdown_text = markdown_text.lstrip("\ufeff")
     lines = markdown_text.replace("\r\n", "\n").replace("\r", "\n").split("\n")
     blocks: list[str] = []
     index = 0
@@ -855,6 +863,42 @@ a {
   margin-top: 2.5rem;
   color: var(--muted);
   font-size: 0.95rem;
+  display: block;
+}
+
+.site-footer-quote {
+  width: min(52rem, 100%);
+  margin: 0 auto;
+}
+
+.site-footer-quote p {
+  margin: 0;
+}
+
+.site-footer-quote em {
+  display: block;
+  font-family: "Palatino Linotype", "Book Antiqua", Georgia, serif;
+  font-size: clamp(1rem, 1.25vw + 0.8rem, 1.18rem);
+  line-height: 1.75;
+  color: var(--ink-soft);
+}
+
+.site-footer-source {
+  margin-top: 0.9rem !important;
+  text-align: right;
+  font-size: 0.88rem;
+  letter-spacing: 0.02em;
+}
+
+.site-footer-source a {
+  color: var(--muted);
+  text-decoration: none;
+}
+
+.site-footer-source a:hover,
+.site-footer-source a:focus-visible {
+  color: var(--accent-deep);
+  text-decoration: underline;
 }
 
 .site-brand {
@@ -875,6 +919,17 @@ a {
   margin: 0;
   color: var(--muted);
   font-size: 0.95rem;
+}
+
+.site-subtitle a {
+  color: inherit;
+  text-decoration-color: color-mix(in srgb, var(--muted) 55%, transparent);
+}
+
+.site-subtitle a:hover,
+.site-subtitle a:focus-visible {
+  color: var(--accent-deep);
+  text-decoration-color: currentColor;
 }
 
 .site-nav {
@@ -1256,7 +1311,6 @@ a {
 
 @media (max-width: 860px) {
   .site-header,
-  .site-footer,
   .teaching-item {
     grid-template-columns: 1fr;
     display: grid;
@@ -1290,6 +1344,14 @@ a {
   .transcript-pagination > :last-child {
     margin-left: auto;
     text-align: right;
+  }
+
+  .site-footer-quote {
+    width: 100%;
+  }
+
+  .site-footer-quote em {
+    line-height: 1.65;
   }
 }
 

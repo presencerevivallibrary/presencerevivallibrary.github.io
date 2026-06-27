@@ -20,7 +20,7 @@ These teachings grew out of Pastor Dave Roberson's own pursuit of God. Through y
 
 At the heart of these teachings is the reality of Christ in you, the hope of glory:
 
-> The goal is to be changed from glory to glory into the image of Christ, becoming a vessel through whom the Father can freely accomplish His purpose in the earth by the power of the Holy Spirit.
+The goal is to be changed from glory to glory into the image of Christ, becoming a vessel through whom the Father can freely accomplish His purpose in the earth by the power of the Holy Spirit.
 
 These transcripts are provided to preserve and make accessible the teachings of Pastor Dave Roberson of Family Prayer Center, Tulsa, Oklahoma, enabling them to be studied, searched, shared, and translated into other languages. It is our hope that believers around the world will benefit from these teachings, grow in fellowship with the Holy Spirit, and be prepared for the Presence Revival.
 

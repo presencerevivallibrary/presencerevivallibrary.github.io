@@ -1,4 +1,4 @@
-﻿# Contending for the Faith
+# Contending for the Faith
 
 ## A Hunger for the Miracle Power of God
 
@@ -345,4 +345,3 @@ That does not exclude the fact that if you spend every day in prayer, it will pr
 Hallelujah. As a corporate Body, we have the Word together, we gather and praise together, and we go to church together. Then there is our individual walk, when we meditate the Word, pray, speak the Word, fellowship with God, and spend our individual times praying in tongues.
 
 We need both. If any voice is telling you to exclude one or the other, it is not God. Hallelujah.
-
