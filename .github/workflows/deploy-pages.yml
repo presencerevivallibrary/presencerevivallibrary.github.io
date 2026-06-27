@@ -45,7 +45,17 @@ jobs:
         continue-on-error: true
         if: hashFiles('website/indexnow.json') != ''
         run: |
-          curl --fail --silent --show-error \
+          http_code=$(curl --silent --show-error \
+            --output indexnow-response.txt \
+            --write-out "%{http_code}" \
             -H "Content-Type: application/json; charset=utf-8" \
             --data-binary @website/indexnow.json \
-            https://api.indexnow.org/indexnow
+            https://api.indexnow.org/indexnow)
+          echo "IndexNow HTTP status: $http_code"
+          if [ -s indexnow-response.txt ]; then
+            echo "IndexNow response body:"
+            cat indexnow-response.txt
+          fi
+          if [ "$http_code" -lt 200 ] || [ "$http_code" -ge 300 ]; then
+            exit 1
+          fi
