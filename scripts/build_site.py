@@ -445,8 +445,6 @@ def write_complete_archive(source_root: Path, lang_root: Path) -> None:
 
 def write_sitemap(output_root: Path, lang: str, teachings: list[Teaching]) -> None:
     urls = [
-        f"{SITE_ORIGIN}/",
-        f"{SITE_ORIGIN}/about.html",
         f"{SITE_ORIGIN}/{lang}/index.html",
         f"{SITE_ORIGIN}/{lang}/about.html",
     ]
